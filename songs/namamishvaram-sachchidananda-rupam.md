@@ -1,0 +1,96 @@
+---
+page: 218
+---
+
+# Śrī Śrī Dāmodarāṣtakam
+
+### Satyavrata Muni
+
+#### 1
+
+    namāmīśvaraṁ sachchidānanda-rūpaṁ
+    lasat-kuṇḍalaṁ gokule bhrājamānam
+    yaśodā-bhiyolūkhalād dhāvamānaṁ
+    parāmṛṣṭam atyantato drutya gopyā
+
+> **namāmi**–Eu ofereço minha reverência **īśvaraṁ**–ao Senhor Supremo, **rūpaṁ**–a personificação **sat**–do eterno **ānanda**–êxtase **chit**–espiritual [cujos] **kuṇḍalaṁ**–brincos **lasat**–balançam [quando] **bhrājamānam**–Ele brilha **gokule**–em Gokula. **bhiyā**–Com medo **yaśodā**–de Yaśodā [Ele] **dhāvamānaṁ**–corre **ulūkhalāt**–do pilão de madeira [mas é] **āmṛṣṭam**–pego **parā**–por trás **gopyā**–pela vaqueira [que] **drutya**–correu **atyantataḥ**–mais rápido [que Ele]
+
+Eu ofereço minha reverência ao Senhor Supremo, a personifi-cação do eterno êxtase espiritual. Seus brincos balançam con-forme Ele brilha em Gokula. Com medo de Mãe Yaśodā, Ele corre do pilão de madeira, mas é pego por trás por ela, que correu mais rápido que Ele.
+
+#### 2
+
+    rudantaṁ muhur netra-yugmaṁ mṛjantaṁ
+    karāmbhoja-yugmena sātaṅka-netram
+    muhuḥ śvāsa-kampa-trirekhāṅka-kaṇṭha-
+    sthita-graiva-dāmodaraṁ bhakti-baddham
+
+> [Quem] **rudantaṁ**–chora [e] **muhuḥ**–repetidamente **mṛjantaṁ**–esfrega [Seus] **netra-yugmaṁ**–olhos [com Suas] **yugmena**–mãos **ambhoja**–de lótus [cujos] **kara netram**–olhos [estão] **sa ātaṅka**–amedrontados, [Ele] **śvāsa**–suspira **muhuḥ**–repetidamente [e] **graiva**–o colar **sthita**–situado **kaṇṭha**–em [Seu] pescoço [que é] **aṅka**–marcado **tri**–por três **rekhā**–linhas **kampa**–treme [e quem, com] **dāma**–a corda [em volta de Sua] **udaraṁ**–cintura, [é] **baddham**–atado **bhakti**–pela devoção.
+
+Ele chora e repetidamente esfrega Seus olhos com Suas mãos de lótus. Seus olhos estão cheios de medo. Ele suspira e o colar em volta de Seu pescoço, que é marcado por três linhas, balança. Com uma corda em volta de Sua cintura, Ele é atado pela devoção.
+
+#### 3
+
+    itīdṛk sva-līlābhir ānanda-kuṇḍe
+    sva-ghoṣaṁ nimajjantam ākhyāpayantaṁ
+    tadīyeṣita-jñeṣu bhaktair jitatvaṁ
+    punaḥ prematas taṁ śatāvṛtti vande
+
+> **īdṛk**–Em tais **sva-līlābhiḥ**–Passatempos Seus **iti**–como este **nimajjantam**–Ele submerge **sva-ghoṣaṁ**–Seus amigos **kuṇḍe**–em um poço **ānanda**–de êxtase [e] **ākhyāpayantaṁ**–proclama **jñeṣu**–para aquele que sabem [apenas] **tadīya**–de Sua **īṣita**–majestade [que Ele é] **itatvaṁ**–conquistado **bhaktaiḥ**–pela devoção. **premataḥ**–Por amor, **vande**–Eu ofereço minha reverência **taṁ**–a Ele **śata**–centenas [e] **punaḥ**–centenas **āvṛtti**–de vezes.
+
+Nestes Passatempos, Ele submerge Seus companheiros em um poço de êxtase e proclama para aqueles que conhecem apenas a Sua Majestade que Ele é conquistado por devoção. Por amor, eu ofereço a minha reverência a Ele centenas e cen-tenas de vezes.
+
+#### 4
+
+    varaṁ deva mokṣaṁ na mokṣāvadhiṁ vā
+    na chānyaṁ vṛṇe ’haṁ vareśād apīha
+    idan te vapur nātha gopāla-bālaṁ
+    sadā me manasy āvirāstāṁ kim anyaiḥ
+
+> **deva**–Ó Senhor! **ahaṁ**–Eu **na**–não **vṛṇe**–desejo **varaṁ**–a benção **mokṣaṁ**–da liberação **na**–nem **avadhiṁ**–a forma mais alta **mokṣa**–de liberação **vānem cha anyaṁ**–qualquer outra [benção de Você] **iha**–aqui (em Vṛndāvan) **api**–apesar [de Você ser] **īśāt**–o controlador **vara**–de [todas] as bênçãos **nātha**–Ó Senhor! [que] **idam**–esta **te**–Sua **vapuḥ**–forma [de] **bālaṁ**–menino **gopāla**–vaqueiro **sadā**–sempre **āvirāstāṁ**–se manifeste [em] **me**–meu **manasi**–coração. **kim**–Que **anyaiḥ**–[outra coisa] mais?
+
+Ó Senhor! Eu não desejo nem a dádiva da liberação, ou a mais alta forma de liberação (residência em Vaikuṇṭha), nem qual-quer outra coisa de Você aqui, embora Você seja o outorgador de todas as dádivas. Ó Senhor! Que Sua forma de vaqueirinho sempre se manifeste em meu coração. Qual outra necessidade pode haver?
+
+#### 5
+
+    idan te mukhāmbhojam avyakta-nīlair
+    vṛtaṁ kuntalaiḥ snigdha-raktaiś cha gopyā
+    muhuś chumbitaṁ bimba-raktādharaṁ me
+    manasy āvirāstām alaṁ lakṣa-lābhaiḥ
+
+> [Que Seus] **adharaṁ**–lábios **rakta**–vermelhos **bimba**–fruta bimba [e] **idam**–este **mukha**–rosto [de] **ambhojam**–lótus **te**–Seu, [que é] **vṛtaṁ**–moldado **kuntalaiḥ**–pelo cabelo [que é] **snigdha**–brilhante, **nīlaiḥ**–azul **avyakta**–escuro [e] **raktaiḥ**–avermelhado, **cha**–e [que é] **muhuḥ**–repetidamente **chumbitaṁ**–beijado **gopyā**–pela vaqueira **āvirāstām**–se manifeste [em] **me**–meu **manasi**–coração. **lakṣa**–Centenas de milhares **lābhaiḥ**–de [outras] dádivas **alaṁ**–desnecessárias.
+
+Que os Seus brilhantes lábios vermelhos e Seu rosto de lótus, que é repetidamente beijado por Mãe Yaśodā e moldado por Seus cachos brilhantes, azul-escuros, e avermelhados, se manifeste dentro do meu coração. Milhares de outras dádivas são sem sentido para mim.
+
+#### 6
+
+    namo deva dāmodarānanta viṣṇo
+    prasīda prabho duḥkha-jālābdhi-magnaṁ
+    kṛpā-dṛṣṭi-vṛṣṭyātidīnaṁ batānu-
+    gṛhāṇeśa mām ajñam edhy akṣi-dṛśyaḥ
+
+> [Minha] **namaḥ**–reverência [a Você,] **ananta**–Ó infinito **viṣṇo**–todo-penetrante **deva**–Senhor, [cuja] **udara**–barriga [é amarrada] **dāma**–por uma corda. **prasīda**–Seja satisfeito **prabho**–Ó Mestre! [Eu estou] **magnaṁ**–submerso **abdhi**–no oceano **jāla**–da ilusória **duḥkha**–tristeza. **bata**–Oh! **anugṛhāṇa**–Por favor agracie **mām**–me, [que sou] **atidīnaṁ**–muito pobre [e] **ajñam**–ignorante, **vṛṣṭyā**–com a chuva **kṛpā**–de [Seu] misericordioso **dṛṣṭi**–olhar. **īśa**–Ó Senhor **edhi**–por favor se torne **dṛśyaḥ**–visível **akṣi**–aos [meus] olhos.
+
+Minha reverência a ti, ó infinito, todo-penetrante Senhor cuja barriga está amarrada com uma corda! Seja satisfeito, Ó Mestre! Estou mergulhado em um oceano de tristeza. Oh! Por favor me agracie, uma alma tão pobre e ignorante, com a chuva de Seu olhar misericordioso. Ó Senhor, por favor, apa-reça diante dos meus olhos.
+
+#### 7
+
+    kuverātmajau baddha-mūrtyaiva yadvat
+    tvayā mochitau bhakti-bhājau kṛtau cha
+    tathā prema-bhaktiṁ svakāṁ me prayachchha
+    na mokṣe graho me ’sti dāmodareha
+
+> **yadvat**–Como **ātmajau**–os filhos **kuvera**–de Kuvera [foram] **mochitau**–liberados **cha**–e **kṛtau**–feitos **bhājau**–recipientes **bhakti**–de devoção **tvayā**–por Você **eva**–mesmo enquanto [Sua] **mūrtyā**–forma [estava] **baddha**–atada, **tathā**–então **prayachchha**–por favor dê **me**–me **svakāṁ**–Sua **prema**–amorosa **bhaktiṁ**–devoção. **iha**–A respeito disso, **na**–não **asti me**–tenho **grahaḥ**–interesse **mokṣe**–na liberação. **dāmodara**–Ó Senhor cuja barriga está amarrada por uma corda!
+
+Você liberou e deu devoção aos dois filhos de Kuvera mesmo com seu corpo preso (por Mae Yaśodā), então por favor me dê devoção amorosa a Você. Aqui, não tenho interesse em libe-ração, Ó Senhor cuja barriga está amarrada com uma corda!
+
+#### 8
+
+    namas te ’stu dāmne sphurad-dīpti-dhāmne
+    tvadīyodarāyātha viśvasya dhāmne
+    namo rādhikāyai tvadīya-priyāyai
+    namo ’nanta-līlāya devāya tubhyam
+
+> [Deixe minha] **namaḥ**–reverência **te**–a Você **astu**–ser, **dāmne**–à corda [que é] **sphurat**–uma esplendorosa **dīpti**–brilhante **dhāmne**–morada, [e] **atha**–então [à] **tvadīya**–Sua **udarāya**–barriga, **dhāmne**–o abrigo **viśvasya**–do universo. [Minha] **namaḥ**–reverência **rādhikāyai**–a Rādhikā, **tvadīya**–Sua **priyāyai**–amada, [e minha] **namaḥ**–reverência **tubhyam**–A Você **devāya**–ao Senhor **līlāya**–cujos Passatempos [são] **ananta**–infinitos.
+
+Deixe-me oferecer minha reverência à brilhante e esplendo-rosa corda (na qual Você está preso) e depois à sua barriga, que é o abrigo do universo. Deixe-me oferecer minha reverência a Rādhikā, Sua amada, e deixe-me oferecer minha reverência a Ti, ó Senhor, cujos Passatempos são infinitos.
+
