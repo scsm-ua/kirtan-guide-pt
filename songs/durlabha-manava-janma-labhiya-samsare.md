@@ -95,5 +95,5 @@ Este é o destino do meu corpo, seus efeitos, sua riqueza mate-rial, e de todos 
     ataeva māyā-moha chhāḍi buddhimāna
     nitya-tattva kṛṣṇa-bhakti karuna sandhāna
 
-Portanto, almas inteligentes! Abandonem a ilusão de Māyā e busquem pela verdade eterna: devoção a Kṛṣṇa
+Portanto, almas inteligentes! Abandonem a ilusão de Māyā e busquem pela verdade eterna: devoção a Kṛṣṇa.
 
