@@ -5,7 +5,7 @@
 - [ātma-nivedana](songs/atma-nivedana-tuya-pade-kori.md)
 - [avatāra sāra](songs/avatara-sara-gora-avatara.md)
 - [(bandhu-gaṇa) śunaha vachana](songs/bondhu-gon-shiunoho-vachana-mora.md)
-- [bhāi re! śarīra avidyā-jāla jaḍendriya tāhe kāla](songs/shorira-avidya-jal-jodendriya-tahe-kal.md)
+- [bhāi re! śarīra avidyā-jāla jaḍendriya tāhe kāla](songs/bhai-re-shorira-avidya-jal-jodendriya-tahe-kal.md)
 - [bhaja bhakata-vatsala](songs/bhaja-bhakata-vatsala-shri-gaurahari.md)
 - [bhaja re bhaja re āmār](songs/bhaja-re-bhaja-re-amar-mana-ati-manda.md)
 - [bhajahu̐ re mana](songs/bhajahu-re-mana-shri-nanda-nandana.md)
