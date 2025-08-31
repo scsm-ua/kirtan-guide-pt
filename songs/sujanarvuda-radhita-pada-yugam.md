@@ -49,7 +49,7 @@ Ele é a lua que encanta seus servos, que são como estrelas. Seu grande rugido,
     dayanīya-gaṇārpita-gaura-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-Ele revela a glória divina de Śrī Gaura Dhām, propõe a celebrada graça de Śrī Gaura em todo o mundo, e instala Śrī Gaura dentro dos corações dos destinatários de sua graça. Eternamente eu ofereço minha reverência aos pés do meu mestre.
+Ele revela a glória divina de Śrī Gaura Dham, propõe a celebrada graça de Śrī Gaura em todo o mundo, e instala Śrī Gaura dentro dos corações dos destinatários de sua graça. Eternamente eu ofereço minha reverência aos pés do meu mestre.
 
 #### 6
 
