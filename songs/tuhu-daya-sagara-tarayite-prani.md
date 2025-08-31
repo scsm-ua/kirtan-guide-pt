@@ -15,7 +15,7 @@ page: 137
 
 > **bhagavan**–Ó Senhor **akāri**–Você manifestou [Seus] **bahudhā**–vários **nāmnām**–Nomes **arpitā**–colocou **sarva**–todo **nija**–do [Seu] próprio **śaktiḥ**–poder **tatra**–Neles, [e] **na**–não **niyamitaḥ**–prescreveu **kālaḥ**–o momento **smaraṇe**–para lembrar [Deles]. **etādṛśī**–Tal [é] **tava**–Sua **kṛpā**–misericórdia. **mama**–Minha **durdaivam**–desventura [é] **īdṛśam**–tal **api**–contudo, [que meu] **anurāgaḥ**–apego **iha**–a Eles **ajani na**–não se desenvolveu.
 
-Ó Senhor, Você manifestou Seus inúmeros Nomes, colocou todo o Seu poder dentro Deles e não fez quaisquer regras rela-tivas ao momento de se lembrar Deles. Tal é Sua grande mise-ricórdia. Meu infortúnio, porém, é que eu não tenho nenhum apego aos Seus Nomes.
+Ó Senhor, Você manifestou Seus inúmeros Nomes, colocou todo o Seu poder dentro Deles e não fez quaisquer regras relativas ao momento de se lembrar Deles. Tal é Sua grande misericórdia. Meu infortúnio, porém, é que eu não tenho nenhum apego aos Seus Nomes.
 
 ## Gīti
 
@@ -35,7 +35,7 @@ Você é um oceano de misericórdia. Para salvar as almas, Você trouxe Seus mui
 
 > **dei’**–Você colocou **sakala**–todo [Seu] **śakati**–poder [em] **tohārā**–Seus **nāme**–Nomes, [e] **rākhali nāhi**–Você não fez **vichārā**–nenhuma regra **kāla**–quanto ao tempo **grahaṇe**–para cantar.
 
-Você colocou todo o Seu poder em Seus Nomes, e Você tam-bém não fez quaisquer regras sobre quando cantá-Los.
+Você colocou todo o Seu poder em Seus Nomes, e Você também não fez quaisquer regras sobre quando cantá-Los.
 
 #### 3
 
