@@ -31,7 +31,7 @@ Por que eu não desenvolvi apego ao Hari-nām-saṅkīrtan, nem pelo amor e riqu
     dīna-hīna yata chhila    hari-nāme uddhārila
         tāra śākṣī jagāi mādhāi
 
-Vrajendra Nandan se tornou Śachī Suta e Balarām se tor-nou Nitāi. Eles liberaram todas as almas caídas com o Santo Nome. Jagāi e Mādhāi são a evidência disso.
+Vrajendra Nandan se tornou Śachī Suta e Balarām se tornou Nitāi. Eles liberaram todas as almas caídas com o Santo Nome. Jagāi e Mādhāi são a evidência disso.
 
 #### 4
 

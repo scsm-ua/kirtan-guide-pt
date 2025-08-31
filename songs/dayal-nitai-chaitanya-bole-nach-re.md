@@ -24,7 +24,7 @@ Oh! Ninguém é tão misericordioso! Nitāi tolera ser agredido. E ainda dá amo
     (takhan) kṛṣṇa-nāme ruchi habe, ghuchibe bandhana
         (anurāg to habe he)
 
-Então minhas ofensas irão embora e irei atingir a riqueza do amor divino. (Nos Nomes de Nitāi e Chaitanya, não há consi-deração de ofensas.) Vou desenvolver o gosto pelo Nome de Kṛṣṇa e meu cativeiro será destruído. (E aí vou obter o apego amoroso).
+Então minhas ofensas irão embora e irei atingir a riqueza do amor divino. (Nos Nomes de Nitāi e Chaitanya, não há consideração de ofensas.) Vou desenvolver o gosto pelo Nome de Kṛṣṇa e meu cativeiro será destruído. (E aí vou obter o apego amoroso).
 
 #### 3
 

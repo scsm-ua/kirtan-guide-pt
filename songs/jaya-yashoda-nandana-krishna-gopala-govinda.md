@@ -18,5 +18,5 @@ Toda glória ao querido filho de Yaśodā, Kṛṣṇa, que protege e satisfaz a
     (jaya) achyuta mādhava rāma vṛndāvana-chandra
     (jaya) muralī-vadana śyāma gopī-janānanda
 
-Toda glória ao Senhor infalível, a lua de Vṛndāvan, que satis-faz Śrī Rādhā! Toda glória ao negro Flautista, o êxtase das gopīs!
+Toda glória ao Senhor infalível, a lua de Vṛndāvan, que satisfaz Śrī Rādhā! Toda glória ao negro Flautista, o êxtase das gopīs!
 

@@ -10,7 +10,7 @@ author: Śrīla Bhakti Vinod Ṭhākur
     hari he dayāla mora jaya rādhā-nātha
     bāra bāra ei-bāra laha nija sātha
 
-Ó misericordioso Senhor! Toda glória a Você, o Senhor de Rādhā! De novo e de novo eu oro a Você. Neste momento con-sidere-me Seu.
+Ó misericordioso Senhor! Toda glória a Você, o Senhor de Rādhā! De novo e de novo eu oro a Você. Neste momento considereme Seu.
 
 #### 2
 

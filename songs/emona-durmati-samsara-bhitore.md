@@ -50,7 +50,7 @@ Vendo-me tão caído e sendo misericordioso, ele veio a mim e disse: “Ó humil
 
 > **tare**–Por causa **rākhibāra**–da realização [das] **pratijñā**–profecias, [dos] **vedera**–Vedas [Ele apareceu com] **varṇa**–uma pele **rukma**–dourada [como] **suta**–filho **vipra**–de um brāhmaṇ **nāme**–com o nome **mahāprabhu**–‘Mahāprabhu’ [e levou] **nadīyā**–Nadia **mātāya**–enlouquecida **saṅge**–na companhia [de Seu] **bhāi**–irmão **avadhūta**–Nityānanda.
 
-“Para cumprir as profecias dos Vedas, Ele apareceu com a pele dourada, como o filho de um brāhmaṇ, com o nome ‘Mahāprabhu’ e deixou toda Nadia (todo o universo) enlou-quecida com amor divino na companhia de Seu irmão Nityānanda.
+“Para cumprir as profecias dos Vedas, Ele apareceu com a pele dourada, como o filho de um brāhmaṇ, com o nome ‘Mahāprabhu’ e deixou toda Nadia (todo o universo) enlouquecida com amor divino na companhia de Seu irmão Nityānanda.
 
 #### 5
 

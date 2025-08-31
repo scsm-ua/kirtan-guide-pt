@@ -12,7 +12,7 @@ page: 103
     man-mānasa-madhukaram arpaya nija-pada-
     paṅkaja-makarande
 
-Ó Senhor, eu ofereço minha reverência a Você. Por favor, colo-que a abelha do meu coração no mel de Seus pés de lótus.
+Ó Senhor, eu ofereço minha reverência a Você. Por favor, coloque a abelha do meu coração no mel de Seus pés de lótus.
 
 #### 2
 
@@ -21,7 +21,7 @@ page: 103
     idam ichāmi niśamya tavāchyuta
     tad api kṛpādbhuta vīchim
 
-Ó Achyuta! Mesmo Brahmā, em samādhi, não pode ver o bri-lho das pontas das unhas de Seus pés, mas eu ouvi falar das ondas da Sua maravilhosa misericórdia, e eu desejo vê-las.
+Ó Achyuta! Mesmo Brahmā, em samādhi, não pode ver o brilho das pontas das unhas de Seus pés, mas eu ouvi falar das ondas da Sua maravilhosa misericórdia, e eu desejo vê-las.
 
 #### 3
 
@@ -39,5 +39,5 @@ page: 103
     nivasatu nityam ihāmṛta-nindini
     vindan madhurima-sāram
 
-Ó Senhor eterno, que a abelha do meu coração viva estável e eternamente em Seus pés de lótus, onde há abundância do mais maravilhoso mel—que ultrapassa o néctar da imortali-dade—e assim atinja a doçura final.
+Ó Senhor eterno, que a abelha do meu coração viva estável e eternamente em Seus pés de lótus, onde há abundância do mais maravilhoso mel—que ultrapassa o néctar da imortalidade—e assim atinja a doçura final.
 

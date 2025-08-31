@@ -28,7 +28,7 @@ Quando lágrimas cairão dos meus olhos, minha voz vacilará e os pelos do meu c
 
 > **phale**–Como resultado [de] **mama**–minhas **aparādha**–ofensas, [meu] **chitta**–coração **bhela**–ficou **sama**–como **vajra**–um trovão, **labhe nā**–ele não encontra [nenhum] **vikāra**–êxtase [em] **tuyā**–Seu **nāme**–Nome. **hatāśa ha-iya**–No desespero **hari**–Ó Senhor **uchcha kari**–eu canto **tava**–Seu **nāma**–Nome. [Com] **baḍa**–grande **duḥkhe**–tristeza **ḍāki**–eu chamo [Seu Nome] **bāra**–de novo [e] **bāra**–de novo.
 
-Como resultado de minhas ofensas, meu coração se endu-receu como um trovão, e não experimenta o êxtase quando canto Seu Nome. Desesperado, Oh Senhor, canto Seu Nome. Com grande tristeza, Eu chamo Seu Nome de novo e de novo.
+Como resultado de minhas ofensas, meu coração se endureceu como um trovão, e não experimenta o êxtase quando canto Seu Nome. Desesperado, Oh Senhor, canto Seu Nome. Com grande tristeza, Eu chamo Seu Nome de novo e de novo.
 
 #### 2
 
@@ -64,7 +64,7 @@ Quando minha voz balbuciará? Quando palavras sairão de minha boca?
 
 > [Quando] **hāmāra**–meu **śarīra**–corpo **bharaba**–se cobrirá **pulake**–com os pelos arrepiados? [Quando] **sveda**–suor, **kampa**–tremor, [e] **stambha**–estupor **habe**–ocorrerão **bāra**–de novo [e] **bāra**–de novo?
 
-Quando meu corpo se arrepiará? Quando vou perspirar, tre-mer e ficar aturdido de novo e de novo?
+Quando meu corpo se arrepiará? Quando vou perspirar, tremer e ficar aturdido de novo e de novo?
 
 #### 6
 

@@ -32,5 +32,5 @@ page: 217
     karuṇāṁ kuru mayi karuṇā-bharite
     sanaka-sanātana-varṇita-charite
 
-Sede misericordiosa comigo, ó Tu que és cheia de misericór-dia! Ela cuja glória é cantada por Sanaka e Sanātan!
+Sede misericordiosa comigo, ó Tu que és cheia de misericórdia! Ela cuja glória é cantada por Sanaka e Sanātan!
 

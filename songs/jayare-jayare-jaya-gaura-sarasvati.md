@@ -11,7 +11,7 @@ page: 30
     jayare jayare jaya gaura-sarasvatī
     bhakativinodānvaya karuṇā murati
 
-Toda glória à voz de Śrī Gaurāṅga, a personificação da mise-ricórdia de Śrīla Bhakti Vinod Ṭhākur: Śrīla Bhakti Siddhanta Saraswatī Ṭhākur!
+Toda glória à voz de Śrī Gaurāṅga, a personificação da misericórdia de Śrīla Bhakti Vinod Ṭhākur: Śrīla Bhakti Siddhanta Saraswatī Ṭhākur!
 
 #### 2
 
@@ -67,7 +67,7 @@ Permanecendo no meio, o flautista declara, através do som de Sua flauta: “Com
     mad abhīṣṭha rūpa rādhāra hṛdaya mandire
     gaurāṅga bhajile suṣṭhu sphūrti pāya tāre
 
-“Se você serve Gaurāṅga, Minha forma que é adorada no tem-plo do coração de Rādhā será plenamente revelada a você. ”
+“Se você serve Gaurāṅga, Minha forma que é adorada no templo do coração de Rādhā será plenamente revelada a você. ”
 
 #### 10
 
@@ -80,7 +80,7 @@ Gaurāṅga Mahāprabhu apareceu em Nadia, e a Providência combinou o salvador 
 
     e-rūpa ārati brahmā śambhu agochara gaura-bhakta kṛpā-pātra mātra siddhi sāra
 
-Tal ārati é desconhecido de Brahmā e Śiva. Somente um reci-piente da misericórdia dos devotos de Śrī Gaurāṅga alcança tal perfeição.
+Tal ārati é desconhecido de Brahmā e Śiva. Somente um recipiente da misericórdia dos devotos de Śrī Gaurāṅga alcança tal perfeição.
 
 #### 12
 

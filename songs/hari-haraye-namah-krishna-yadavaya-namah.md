@@ -11,7 +11,7 @@ page: 223
     hari haraye namaḥ kṛṣṇa yādavāya namaḥ
     yādavāya mādhavāya keśavāya namaḥ
 
-Ó Senhor, Kṛṣṇa, Yādava, Hari, Mādhava, Keśava, repetida-mente ofereço minha reverência a Ti.
+Ó Senhor, Kṛṣṇa, Yādava, Hari, Mādhava, Keśava, repetidamente ofereço minha reverência a Ti.
 
 #### 2
 
@@ -60,7 +60,7 @@ Viver com os devotos que servem os pés deles é o meu desejo, nascimento após 
     ei chhaya gosāñi yabe vraje kailā vāsa
     rādhā-kṛṣṇa-nitya-līlā karilā prakāśa
 
-Quando esses seis goswāmīs viveram em Vraja, eles revela-ram os Passatempos eternos de Rādhā–Kṛṣṇa.
+Quando esses seis goswāmīs viveram em Vraja, eles revelaram os Passatempos eternos de Rādhā–Kṛṣṇa.
 
 #### 9
 

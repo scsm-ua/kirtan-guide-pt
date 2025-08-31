@@ -12,7 +12,7 @@ page: 39
     vṛnde mahārāṇī namo namaḥ
     namo re namo re mā̐iyā namo nārāyaṇī
 
-Ó Tulasī Mahārāṇī, Ó Vṛndā Devī, eu ofereço minha reverên-cia a você repetidamente. Ó Nārāyaṇī, eu ofereço minha reverência a você repetidamente.
+Ó Tulasī Mahārāṇī, Ó Vṛndā Devī, eu ofereço minha reverência a você repetidamente. Ó Nārāyaṇī, eu ofereço minha reverência a você repetidamente.
 
 #### 2
 

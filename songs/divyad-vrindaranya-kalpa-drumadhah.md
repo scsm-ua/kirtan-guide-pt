@@ -14,5 +14,5 @@ author: Śrīla Rūpa Goswāmī Prabhu
 
 *(Śrī Chaitanya-charitāmṛta: Ādi-līlā, 1.16)*
 
-Eu medito em Śrī Śrī Gāndharvā–Govindadev sendo adora-dos por Suas queridas amigas sentados em um trono dentro de uma bela morada adornada de joias, sob as árvores realiza-doras dos desejos da floresta Vṛndā.
+Eu medito em Śrī Śrī Gāndharvā–Govindadev sendo adorados por Suas queridas amigas sentados em um trono dentro de uma bela morada adornada de joias, sob as árvores realizadoras dos desejos da floresta Vṛndā.
 

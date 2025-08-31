@@ -11,7 +11,7 @@ page: 207
     ye ānila prema-dhana karuṇā prachura
     hena prabhu kothā gelā āchārya ṭhākura
 
-Para onde foi Advaita Āchārya, o Senhor que misericordio-samente trouxe a riqueza do amor divino para este mundo?
+Para onde foi Advaita Āchārya, o Senhor que misericordiosamente trouxe a riqueza do amor divino para este mundo?
 
 #### 2
 

@@ -69,7 +69,7 @@ Quando, na terra de Nabadwip, às margens do Ganges vou correr, chamando sincera
 
 > **kabe**–Quando **nityānanda**–Śrī Nityānanda Prabhu **kari’ dayā**–terá misericórdia **more**–de mim [e] **chhāḍāibe**–irá causar o abandono [do] **mora**–meu **māyā**–apego **viṣayera**–[à] mundanidade? [Quando Ele] **diyā**–dando **more**–a mim **nija**–[a] Própria **chhāyā**–sombra **charaṇera**–de Seus Pés [me] **dibe**–dará **adhikāra**–qualificação **hāṭete**–no mercado **nāmera**–do Nome?
 
-Quando Nityānanda terá misericórdia de mim e me fará aban-donar o meu apego à mundanidade? Quando ele me dará a sombra de Seus pés e me concederá um lugar no mercado do Nome?
+Quando Nityānanda terá misericórdia de mim e me fará abandonar o meu apego à mundanidade? Quando ele me dará a sombra de Seus pés e me concederá um lugar no mercado do Nome?
 
 #### 7
 
@@ -91,5 +91,5 @@ Quando vou comprar e com alegria espalhar o rasa do Nome? Quando vou me tornar i
 
 > **kabe**–Quando [a] **dayā**–misericórdia **jīve**–pelas almas **ha-ibe udaya**–surgirá? [Quando] **bhakati-vinoda**–Bhakti Vinod [irá] **bhuli’**–esquecer [sua] **nija**–própria **sukha**–felicidade [e com o] **sudīna**–mais humilde **hṛdaya**–coração **śrī-ājñā-ṭahala**–por ordem divina viajar **kariyā vinaya**–[e.com] humildade **karibe parachāra**–irá pregar ?
 
-Quando a compaixão por todas as almas surgirá dentro de mim? Quando Bhakti Vinod irá esquecer a sua própria felici-dade e viajar respeitosamente pregando os ensinamentos de Śrī Gaurasundar com o mais humilde coração?
+Quando a compaixão por todas as almas surgirá dentro de mim? Quando Bhakti Vinod irá esquecer a sua própria felicidade e viajar respeitosamente pregando os ensinamentos de Śrī Gaurasundar com o mais humilde coração?
 

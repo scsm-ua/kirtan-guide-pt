@@ -11,7 +11,7 @@ page: 85
     ke yābi ke yābi bhāi bhava-sindhu pāra
     dhanya kali-yuge re chaitanya-avatāra
 
-Quem irá cruzar, ó irmão, quem irá cruzar o oceano da exis-tência material? Oh! A fortuna desta Era de Kali é o apareci-mento de Śrī Chaitanya.
+Quem irá cruzar, ó irmão, quem irá cruzar o oceano da existência material? Oh! A fortuna desta Era de Kali é o aparecimento de Śrī Chaitanya.
 
 #### 2
 
@@ -32,5 +32,5 @@ Os Nomes do Senhor são o barco de travessia, Śrī Guru é o capitão, e os bra
     sarva-jīva uddhāra haila premera vātāse
     lochana paḍiyā raila karamera doṣe
 
-Todas as almas foram então liberadas pelos ventos do amor divino. Apenas Lochan Dās caiu e ficou para trás, em decor-rência de seus pecados.
+Todas as almas foram então liberadas pelos ventos do amor divino. Apenas Lochan Dās caiu e ficou para trás, em decorrência de seus pecados.
 

@@ -13,7 +13,7 @@ page: 88
     rādhāra mahimā    prema-rasa-sīmā
         jagate jānāta ke?
 
-Se Śrī Gaura não tivesse vindo, o que teria acontecido? Como manteríamos nossas vidas? Quem revelaria ao mundo a gló-ria de Śrī Rādhā e os extremos de Seu extático amor divino?
+Se Śrī Gaura não tivesse vindo, o que teria acontecido? Como manteríamos nossas vidas? Quem revelaria ao mundo a glória de Śrī Rādhā e os extremos de Seu extático amor divino?
 
     (rādhār mahimā ke jānāta)
     (gaura yadi nā āsita rādhār mahimā ke jānatā)
@@ -36,7 +36,7 @@ Quem teria a formidável especialidade, necessária para se entrar na doçura da
     e bhava-sāgare    emana dayāla
         nā dekhiye eka-jana
 
-Cante as glórias de Gaurāṅga de novo e de novo, mantendo seu coração simples. No oceano deste mundo material, nin-guém nunca viu alguém tão misericordioso.
+Cante as glórias de Gaurāṅga de novo e de novo, mantendo seu coração simples. No oceano deste mundo material, ninguém nunca viu alguém tão misericordioso.
 
 #### 4
 

@@ -26,7 +26,7 @@ O mahāmantra Hari-nām é o melhor de todos os mantras e é distribuído em tod
 
 > **nandana**–O filho **indra**–do Rei **vraja**–de Vraja, **kṛṣṇa**–Kṛṣṇa, [é] **iśvara**–o Senhor **sarva**–de todos [os] **iśvara**–Senhores. **maha-iśvara**–O grande senhor (Śiva) [e] **adi**–os outros [deuses são] **tatpara**–dedicados [a] **tā̐ra**–Seu **sevana**–serviço. **nāma**–O Nome [é] **chintā-maṇi**–uma joia realizadora dos desejos [e uma] **svarūpa**–forma **chaitanya**–espiritual **kṛṣṇa**–de Kṛṣṇa. **jñāna na karibe**–Não considere [o Nome] **bheda**–distinto [de Sua] **rūpa**–Forma, **guṇa**–Qualidades, [e] **līlā**–Passatempos.
 
-Vrajendra Nandan Kṛṣṇa é o Senhor de todos os Senhores. Śiva e todos os outros deuses são dedicados ao Seu serviço. O Nome é uma joia realizadora dos desejos e uma forma espiri-tual do próprio Kṛṣṇa. Não considere o Nome de Kṛṣṇa como distinto de sua Forma, Qualidades ou Passatempos.
+Vrajendra Nandan Kṛṣṇa é o Senhor de todos os Senhores. Śiva e todos os outros deuses são dedicados ao Seu serviço. O Nome é uma joia realizadora dos desejos e uma forma espiritual do próprio Kṛṣṇa. Não considere o Nome de Kṛṣṇa como distinto de sua Forma, Qualidades ou Passatempos.
 
 #### 3
 
@@ -37,7 +37,7 @@ Vrajendra Nandan Kṛṣṇa é o Senhor de todos os Senhores. Śiva e todos os 
 
 > **pramāṇe**–De acordo com a evidência **śāstrera**–das escrituras, [o] **guru**–Guru **hana**–é **rūpa**–uma forma **kṛṣṇa**–de Kṛṣṇa. **rūpe**–Na forma **guru**–de Guru, **kṛṣṇa**–Kṛṣṇa **kṛpā kare**–concede misericórdia **bhāgyavāne**–ao afortunado. **tyaji’**–Abandonando **buddhi**–a mentalidade **se gurute**–de que o Guru [é] **martya**–mortal [e todos os outros tipos de] **avajña**–desrespeito (desobediência, inveja) **ādi**–e assim por diante, **lābha kara**–atinja [sua] **iṣṭa**–meta: **bhaji’**–servir **nāma**–o Nome **nirantara**–eternamente.
 
-“As escrituras confirmam que o Guru é uma forma de Kṛṣṇa (*SB: 11.17.27*). Na forma do Guru, Kṛṣṇa concede Sua miseri-córdia ao afortunado.” Abandone a concepção de que o Guru é um mortal, e todos os outros tipos de desrespeito, e alcance sua estimada meta: servir o Nome eternamente.
+“As escrituras confirmam que o Guru é uma forma de Kṛṣṇa (*SB: 11.17.27*). Na forma do Guru, Kṛṣṇa concede Sua misericórdia ao afortunado.” Abandone a concepção de que o Guru é um mortal, e todos os outros tipos de desrespeito, e alcance sua estimada meta: servir o Nome eternamente.
 
 #### 4
 
@@ -61,7 +61,7 @@ Os Vedas, sua mãe, o Gāyatrī, e o *Śrīmad Bhāgavatam* adoram os pés de l�
 
 > **mahimā**–As glórias **nāmera**–do Nome [são] **vākhāne**–proclamadas [em] **sarva**–todas **śāstrete**–as escrituras. **mane**–Em [sua] mente, **bhāviha nā**–não pense **kabhu**–em nenhum momento **hena**–que [elas são] **atistuti**–elogios exagerados. **agastya**–Agastya, **ananta**–Ananta, **brahmā**–Brahmā, **śiva**–Śiva, **ādi**–e outros deuses [são] **satata**–sempre **rata**–engajados em **saṅkīrtana**–cantar **gāthā**–narrações **mahimā**–das glórias **nāma**–do Nome. [Então,] **ke**–quem **pāibe**–será apto **pāra**–a atravessar **sindhu**–o oceano **se ye**–destas **mahimā**–glórias **se nāma**–do Nome? **sei**–Aquele **yei**–que **bale**–considera **atistuti**–[os] elogios [como sendo] exageros [é] **durāchāra**–mesquinho.
 
-As glórias do Nome são proclamadas em todas as escrituras. Nunca considere tais glorificações como elogios exagerados. Agastya, Ananta, Brahmā, Śiva, e assim por diante são sem-pre dedicados a cantar as glórias do Nome. Quem pode atra-vessar o oceano dessas glórias? Qualquer pessoa que as consi-dere um exagero é má.
+As glórias do Nome são proclamadas em todas as escrituras. Nunca considere tais glorificações como elogios exagerados. Agastya, Ananta, Brahmā, Śiva, e assim por diante são sempre dedicados a cantar as glórias do Nome. Quem pode atravessar o oceano dessas glórias? Qualquer pessoa que as considere um exagero é má.
 
 #### 6
 

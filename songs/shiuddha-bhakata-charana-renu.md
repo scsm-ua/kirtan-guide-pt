@@ -15,7 +15,7 @@ page: 214
 
 > **reṇu**–A poeira **charaṇa**–dos pés **bhakata**–dos devotos **śuddha**–puros **anukūla**–[é] favorável **bhajana**–[à] devoção. **sevā**–Serviço **bhakata**–aos devotos [é] **parama**–[a] suprema **siddhi**–realização, **mūla**–[e] a raiz **latikāra**–da trepadeira **prema**–[do] amor divino.
 
-A poeira dos pés dos devotos puros é favorável à devoção. Servir os devotos é a suprema realização, e a raiz da trepa-deira do amor divino.
+A poeira dos pés dos devotos puros é favorável à devoção. Servir os devotos é a suprema realização, e a raiz da trepadeira do amor divino.
 
 #### 2
 

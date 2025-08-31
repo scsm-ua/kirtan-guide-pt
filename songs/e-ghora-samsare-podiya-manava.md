@@ -22,7 +22,7 @@ Uma pessoa que tenha caído neste mundo terrível nunca deixa de sofrer. Se ela 
     aparādha chhāḍi’    laya kṛṣṇa-nāma
         anale paḍaye jala
 
-Uma alma caída queima no fogo cada vez maior da mundani-dade. Evitando ofensas, cante o nome de Kṛṣṇa. Isso derrama água sobre o fogo.
+Uma alma caída queima no fogo cada vez maior da mundanidade. Evitando ofensas, cante o nome de Kṛṣṇa. Isso derrama água sobre o fogo.
 
 #### 3
 

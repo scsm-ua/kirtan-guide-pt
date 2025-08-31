@@ -32,14 +32,14 @@ Os sons das mṛdaṅgas, dos címbalos, conchas e palmas, todos se combinaram n
     brahmāṇḍe uṭhila dhvani pūriyā ākāśa
     chaudikera amaṅgala yāya saba nāśa
 
-O som do saṅkīrtan surgiu e encheu o céu, destruindo a inaus-piciosidade em todas as direções.
+O som do saṅkīrtan surgiu e encheu o céu, destruindo a inauspiciosidade em todas as direções.
 
 #### 5
 
     chatur-dike śrī hari-maṅgala saṅkīrtana
     madhye nāche jagannātha miśrera nandana
 
-Mahāprabhu Viśvambhar, o filho de Jagannāth Miśra, dan-çou, cercado pelo auspicioso Hari-nām-saṅkīrtan.
+Mahāprabhu Viśvambhar, o filho de Jagannāth Miśra, dançou, cercado pelo auspicioso Hari-nām-saṅkīrtan.
 
 #### 6
 
@@ -60,7 +60,7 @@ Mahāprabhu Viśvambhar dançou no êxtase de Si mesmo. Ouvir o ritmo de Seus p�
     bhāvāveśe mālā nāhi rahaye galāya
     chhiṇḍiyā paḍaye giyā bhakatera gāya
 
-Enquanto Ele estava tomado de êxtase, Sua guirlanda não pôde permanecer em Seu pescoço. Enquanto os devotos can-tavam, ela se rompeu e caiu.
+Enquanto Ele estava tomado de êxtase, Sua guirlanda não pôde permanecer em Seu pescoço. Enquanto os devotos cantavam, ela se rompeu e caiu.
 
 #### 9
 
@@ -87,7 +87,7 @@ Por meio deste Nome, Vālmīki se tornou um sábio poderoso, por meio deste Nome
     sarva-mahā-prāyaśchita ye prabhura nāma
     se prabhu nāchaye dekhe yata bhāgyavān
 
-Aquele cujo Nome Śukadev e Nārad tomam enquanto via-jam, cujas glórias o Anantadev de mil bocas canta, cujo Nome é a forma suprema de expiação, esse Senhor agora dança e lança Seu olhar às almas afortunadas.
+Aquele cujo Nome Śukadev e Nārad tomam enquanto viajam, cujas glórias o Anantadev de mil bocas canta, cujo Nome é a forma suprema de expiação, esse Senhor agora dança e lança Seu olhar às almas afortunadas.
 
 #### 14
 
