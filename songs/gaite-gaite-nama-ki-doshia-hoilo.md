@@ -60,7 +60,7 @@ Enquanto eu chorava, meus olhos derramaram lágrimas. Torrentes de chuva caem do
 
 > **nimeṣa**–Um momento **ha-ila**–se tornou **sama**–como **śata**–centenas [de] **yuga**–eras **mora**–para mim. **akṣama**–Não posso **sahite**–tolerar [a] **viraha**–separação **govinda**–de Govinda **āra**–mais.
 
-Um momento parece centenas de eras. Não consigo mais tole-rar a separação de Govinda.
+Um momento parece centenas de eras. Não consigo mais tolerar a separação de Govinda.
 
 #### 6
 
@@ -71,7 +71,7 @@ Um momento parece centenas de eras. Não consigo mais tole-rar a separação de 
 
 > **dekhiye**–Vendo **tala**–a superfície **dharā**–da Terra **chaudike**–nas quatro direções **śūnya**–vazia, [meu] **parāṇa**–coração **haya**–está **udāsa**–apático. **ki**–O que **kari**–eu deveria fazer? **ki**–o que **kari**–eu deveria fazer? [Meu coração] **nāhi**–não pode **haya**–se tornar **sthira**–estável, [e minha] **jīvana**–vida **nāhika**–não pode **raya**–continuar.
 
-Vendo a superfície da Terra vazia em todas as direções, meu coração está apático. O que eu deveria fazer? O que eu deve-ria fazer? Em meu coração não há segurança, e não posso seguir com minha vida.
+Vendo a superfície da Terra vazia em todas as direções, meu coração está apático. O que eu deveria fazer? O que eu deveria fazer? Em meu coração não há segurança, e não posso seguir com minha vida.
 
 #### 7
 
@@ -91,5 +91,5 @@ Vendo a superfície da Terra vazia em todas as direções, meu coração está a
 
 > **pāri nā**–Eu não posso **sahite**–tolerar [a] **viraha**–separação **śrī-kṛṣṇa**–de Śrī Kṛṣṇa **āra**–mais. [Estou pronto] **chhāḍite**–para abandonar [minha] **parāṇa**–vida [dentro de] **āra**–outros **dui**–dois [a] **chāri**–quatro **dina**–dias.
 
-Não consigo mais tolerar a separação de Kṛṣṇa. Vou abando-nar minha vida em poucos dias.
+Não consigo mais tolerar a separação de Kṛṣṇa. Vou abandonar minha vida em poucos dias.
 

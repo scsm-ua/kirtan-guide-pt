@@ -56,7 +56,7 @@ Contemplando a forma de Kṛṣṇa, que supera a beleza de uma safira, embaixo 
     charaṇa-kamale    amiyā uchhale
         tāhāte nūpura dāma
 
-Que coroa em sua cabeça! Que flauta em Sua mão! Que pos-tura trina! Néctar surgiu de Seus pés de lótus que estavam adornados com tornozeleiras tilintantes.
+Que coroa em sua cabeça! Que flauta em Sua mão! Que postura trina! Néctar surgiu de Seus pés de lótus que estavam adornados com tornozeleiras tilintantes.
 
 #### 7
 
@@ -65,5 +65,5 @@ Que coroa em sua cabeça! Que flauta em Sua mão! Que pos-tura trina! Néctar su
     anāyāse pāi    kṛṣṇa-guṇa gāi
         āra nā bhajiba āna
 
-Eternamente, eu desejo tomar a forma de uma abelha, facil-mente alcançar um lugar aos pés de lótus de Kṛṣṇa e cantar Suas glórias. Eu nunca vou servir nenhuma outra pessoa.
+Eternamente, eu desejo tomar a forma de uma abelha, facilmente alcançar um lugar aos pés de lótus de Kṛṣṇa e cantar Suas glórias. Eu nunca vou servir nenhuma outra pessoa.
 

@@ -39,7 +39,7 @@ De acordo com as ordens das sakhīs, sirvo Rādhā e Kṛṣṇa. Como criada ma
 
 > **kabhu**–Às vezes **kṛpā kari’**–Eles misericordiosamente **dhari’**–seguram **mama**–minhas **hasta**–mãos [e] **bale**–falam **madhura**–doces **vachana**–palavras [a mim]. **dui hane**–Eles **la-iyā**–aceitam **tāmbula**–pān, **khāya**–mastigam [no], [e] **kutūhale**–avidamente **laya**–aceitam **mālā**–guirlandas.
 
-Às vezes, Eles misericordiosamente seguram minhas mãos e me dizem palavras doces. Eles aceitam pān de mim, o masti-gam, e avidamente vestem guirlandas que eu preparei.
+Às vezes, Eles misericordiosamente seguram minhas mãos e me dizem palavras doces. Eles aceitam pān de mim, o mastigam, e avidamente vestem guirlandas que eu preparei.
 
 #### 4
 
@@ -59,7 +59,7 @@ De acordo com as ordens das sakhīs, sirvo Rādhā e Kṛṣṇa. Como criada ma
 
 > **yekhāne sekhāne**–Onde quer que **du’jane**–Eles **thākuka**–estejam, **āmi**–eu [sou] **ta**–certamente **dāsī**–uma serva **charaṇa**–aos [Seus] pés. **ānanda**–O êxtase **milane**–da união, **yātanā**–a dor **virahe**–da separação, **vāsi**–eu sinto **sakala**–tudo [como sendo] **samāna**–o mesmo.
 
-Onde quer que Eles estejam, sou uma serva a Seus pés. Na ale-gria da união, na dor da separação—eu permaneço a mesma em todas as circunstâncias.
+Onde quer que Eles estejam, sou uma serva a Seus pés. Na alegria da união, na dor da separação—eu permaneço a mesma em todas as circunstâncias.
 
 #### 6
 

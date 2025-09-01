@@ -15,7 +15,7 @@ page: 180
     luṇṭhita-pratāpa-śīrṣa-pāda-dhūli-dhūsaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Quando o norte da Índia estava sob o reinado mulçumano, esse grandioso Rei Pratāparudra, imperador do estado inde-pendente de Orissa, ficou completamente atônito e domi-nado pela magnanimidade, ousadia e atividades do Senhor Chaitanya exibidas em amor puro pelo Supremo. O grande Rei Pratāparudra rejeitou todos os seus laços anteriores com a religiosidade tradicional e sua corajosa e majestosa natureza, e se atirou diante dos pés de lótus de Śrī Chaitanyadev em total rendição. O misericordioso Senhor então banhou a cabeça do imperador rendido com a poeira sagrada de Seus suaves pés de lótus. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
+Quando o norte da Índia estava sob o reinado mulçumano, esse grandioso Rei Pratāparudra, imperador do estado independente de Orissa, ficou completamente atônito e dominado pela magnanimidade, ousadia e atividades do Senhor Chaitanya exibidas em amor puro pelo Supremo. O grande Rei Pratāparudra rejeitou todos os seus laços anteriores com a religiosidade tradicional e sua corajosa e majestosa natureza, e se atirou diante dos pés de lótus de Śrī Chaitanyadev em total rendição. O misericordioso Senhor então banhou a cabeça do imperador rendido com a poeira sagrada de Seus suaves pés de lótus. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 32
 
@@ -24,7 +24,7 @@ Quando o norte da Índia estava sob o reinado mulçumano, esse grandioso Rei Pra
     deśa-mātṛ-śeṣa-darśanārthi-gauḍa-gocharaṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-O Senhor Supremo foi adorado pela famosa classe de eruditos do sul da Índia. Os maiores príncipes e seus ministros viram o Senhor com profunda fé e o trataram como a joia principal merecedora de seu respeito. Conforme os princípios corre-tos estabelecidos na autêntica sucessão discipular, o Senhor veio à Bengal Ocidental para ver o sagrado Ganges. Ele tam-bém veio ver Seu local de nascimento e Sua mãe Śachī Devī, como se fosse a última vez. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
+O Senhor Supremo foi adorado pela famosa classe de eruditos do sul da Índia. Os maiores príncipes e seus ministros viram o Senhor com profunda fé e o trataram como a joia principal merecedora de seu respeito. Conforme os princípios corretos estabelecidos na autêntica sucessão discipular, o Senhor veio à Bengal Ocidental para ver o sagrado Ganges. Ele também veio ver Seu local de nascimento e Sua mãe Śachī Devī, como se fosse a última vez. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 33
 
@@ -33,7 +33,7 @@ O Senhor Supremo foi adorado pela famosa classe de eruditos do sul da Índia. Os
     muhyamāna-mātṛkādi-deha-jīva-sañcharaṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Durante Suas viagens, a fama do Senhor Gaurāṅgadev inun-dou toda Bengal. Portanto, quando Ele retornou a Nabadwīp cinco anos depois de ter aceito sannyās, toda Bengal, que estava orgulhosa do Senhor Gaurāṅga, ficou entusiasmada de poder glorificar Sua personalidade extraordinária. Até mesmo a orgulhosa classe de eruditos ateus sentiu-se desconfortável em sua natureza vil quando observou como as pessoas comuns de todas as classes sociais tinham tamanha fervorosa fé no Senhor. Quando mãe Śachī e os outros membros da família que estavam como que sem vida devido à separação tiveram outro vislumbre de Śrī Chaitanyadev, sua substância vital rejuvenes-ceu. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
+Durante Suas viagens, a fama do Senhor Gaurāṅgadev inundou toda Bengal. Portanto, quando Ele retornou a Nabadwīp cinco anos depois de ter aceito sannyās, toda Bengal, que estava orgulhosa do Senhor Gaurāṅga, ficou entusiasmada de poder glorificar Sua personalidade extraordinária. Até mesmo a orgulhosa classe de eruditos ateus sentiu-se desconfortável em sua natureza vil quando observou como as pessoas comuns de todas as classes sociais tinham tamanha fervorosa fé no Senhor. Quando mãe Śachī e os outros membros da família que estavam como que sem vida devido à separação tiveram outro vislumbre de Śrī Chaitanyadev, sua substância vital rejuvenesceu. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 34
 
@@ -42,7 +42,7 @@ Durante Suas viagens, a fama do Senhor Gaurāṅgadev inun-dou toda Bengal. Port
     koṭi-kaṇṭha-kṛṣṇa-nāma-ghoṣa-bheditāmbaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Ao retornar ao seu local de nascimento depois de cinco longos anos de sannyāsī, o Senhor Supremo foi recebido igualmente por milhões de jovens e velhos. Os olhos de todos estavam ávi-dos para ver o Senhor, que atraía o mais profundo de seus cora-ções. A presença extática do Senhor entusiasmou as multidões a continuamente ressoarem os Santos Nomes do Senhor Hari, e elas criaram um som tumultuoso que reverberou em todas as direções, além dos limites do céu. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
+Ao retornar ao seu local de nascimento depois de cinco longos anos de sannyāsī, o Senhor Supremo foi recebido igualmente por milhões de jovens e velhos. Os olhos de todos estavam ávi-dos para ver o Senhor, que atraía o mais profundo de seus corações. A presença extática do Senhor entusiasmou as multidões a continuamente ressoarem os Santos Nomes do Senhor Hari, e elas criaram um som tumultuoso que reverberou em todas as direções, além dos limites do céu. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 35
 
@@ -51,7 +51,7 @@ Ao retornar ao seu local de nascimento depois de cinco longos anos de sannyāsī
     rāma-keli-sāgrajāta-rūpa-karṣaṇādaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Śrī Gaurāṅgadev aliviou a ansiedade que os devotos sentiam devido à Sua longa separação e perdoou muitas almas peca-doras, ofensivas e movidas pela ansiedade tais como Gopāl Chāpāl e outras. O Senhor então começou a correr rumo a Vṛndāvan pelas margens do Ganges. Um oceano de pessoas o seguiu até a capital de Bengal, que naquela época era conhe-cida como Rāmakeli. Em Rāmakeli, o Senhor Gaurāṅga foi atra-ído por Seus dois associados eternos que atuavam como minis-tros no governo mulçumano. O Senhor mostrou profundo afeto por Śrīla Rūpa Goswāmī e seu irmão mais velho, Śrīla Sanātan Goswāmī. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a forma divina de Kṛṣṇa-prema.
+Śrī Gaurāṅgadev aliviou a ansiedade que os devotos sentiam devido à Sua longa separação e perdoou muitas almas pecadoras, ofensivas e movidas pela ansiedade tais como Gopāl Chāpāl e outras. O Senhor então começou a correr rumo a Vṛndāvan pelas margens do Ganges. Um oceano de pessoas o seguiu até a capital de Bengal, que naquela época era conhecida como Rāmakeli. Em Rāmakeli, o Senhor Gaurāṅga foi atraído por Seus dois associados eternos que atuavam como ministros no governo mulçumano. O Senhor mostrou profundo afeto por Śrīla Rūpa Goswāmī e seu irmão mais velho, Śrīla Sanātan Goswāmī. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a forma divina de Kṛṣṇa-prema.
 
 #### 36
 
@@ -60,7 +60,7 @@ Ao retornar ao seu local de nascimento depois de cinco longos anos de sannyāsī
     durga-vanya-mārga-bhaṭṭa-mātra-saṅga-saukaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Deixando Rāmakeli, o Senhor continuou através de Bengal rumo a Jagannāth Purī. Depois de deixar Purī Dhām, o Senhor Chaitanya passou pela floresta de Jhāḍakhaṇḍa em Seu cami-nho a Vṛndāvan, onde inspirou os tigres, veados, elefantes e outros animais da selva a se juntarem ao canto congregacional dos Santos Nomes do Senhor Kṛṣṇa. Intoxicados pelos doces Nomes do Senhor, os animais com júbilo dançaram com Ele, que estava loucamente absorto nos êxtases devocionais mais profundos. O Senhor Supremo experimentou realizações pro-fundas em Sua adoração solitária na medida em que se aprofun-dava pelos caminhos impenetráveis da selva de Jhāḍakhaṇḍa acompanhado por Balabhadra Bhaṭṭāchārya. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a per-sonificaçao de Kṛṣṇa-prema.
+Deixando Rāmakeli, o Senhor continuou através de Bengal rumo a Jagannāth Purī. Depois de deixar Purī Dhām, o Senhor Chaitanya passou pela floresta de Jhāḍakhaṇḍa em Seu caminho a Vṛndāvan, onde inspirou os tigres, veados, elefantes e outros animais da selva a se juntarem ao canto congregacional dos Santos Nomes do Senhor Kṛṣṇa. Intoxicados pelos doces Nomes do Senhor, os animais com júbilo dançaram com Ele, que estava loucamente absorto nos êxtases devocionais mais profundos. O Senhor Supremo experimentou realizações profundas em Sua adoração solitária na medida em que se aprofundava pelos caminhos impenetráveis da selva de Jhāḍakhaṇḍa acompanhado por Balabhadra Bhaṭṭāchārya. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 37
 
@@ -69,7 +69,7 @@ Deixando Rāmakeli, o Senhor continuou através de Bengal rumo a Jagannāth Pur�
     smārita-vrajāti-tīvra-vipralambha-kātaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-O Senhor Gaurasundar mostrou grande respeito às Deidades ao longo das margens do Ganges em Kāśī e em Bindu Mādhava na confluência do Ganges com o Yamunā em Prayāg. Seguindo a corrente do Yamunā, o Senhor começou a correr rápido em suas margens, ansioso atrás de um vislumbre do local sagrado conhecido como Mathurā. Quando os pensamentos divi-nos dos Passatempos de Vṛndāvan dominaram Sua memória e causaram sentimentos intoleráveis de separação, o Senhor Gaurasundar caiu inconsciente. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
+O Senhor Gaurasundar mostrou grande respeito às Deidades ao longo das margens do Ganges em Kāśī e em Bindu Mādhava na confluência do Ganges com o Yamunā em Prayāg. Seguindo a corrente do Yamunā, o Senhor começou a correr rápido em suas margens, ansioso atrás de um vislumbre do local sagrado conhecido como Mathurā. Quando os pensamentos divinos dos Passatempos de Vṛndāvan dominaram Sua memória e causaram sentimentos intoleráveis de separação, o Senhor Gaurasundar caiu inconsciente. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 38
 
@@ -85,7 +85,7 @@ O Senhor Chaitanya afirmou que o sentimento de profunda separação que Mādhave
     hṛdayaṁ tvad-aloka-kātaraṁ
     dayita bhrāmyati kiṁ karomy aham
 
-“Ó meu Senhor! Ó mais gracioso mestre! Ó mestre de Mathurā! Quando Eu O verei novamente? Por não ver Você, Meu agi-tado coração se tornou instável. Ó mais amado, o que farei agora?” Depois que o Senhor entrou em Vraja—o cenário onde são realizados os Passatempos de amor puro—Ele foi vencido pela satisfação completa de Seu coração. O Senhor ficou encan-tado de ver os belos jardins e bosques da floresta que serviram como Seu parque de brincadeiras em Seus Passatempos espi-rituais em uma era anterior. Quando visitou as doze florestas de Vṛndāvan, o Senhor exibiu diferentes atitudes com os meni-nos e meninas vaqueiras. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificação de Kṛṣṇa-prema.
+“Ó meu Senhor! Ó mais gracioso mestre! Ó mestre de Mathurā! Quando Eu O verei novamente? Por não ver Você, Meu agitado coração se tornou instável. Ó mais amado, o que farei agora?” Depois que o Senhor entrou em Vraja—o cenário onde são realizados os Passatempos de amor puro—Ele foi vencido pela satisfação completa de Seu coração. O Senhor ficou encantado de ver os belos jardins e bosques da floresta que serviram como Seu parque de brincadeiras em Seus Passatempos espirituais em uma era anterior. Quando visitou as doze florestas de Vṛndāvan, o Senhor exibiu diferentes atitudes com os meninos e meninas vaqueiras. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificação de Kṛṣṇa-prema.
 
 #### 39
 
@@ -94,7 +94,7 @@ O Senhor Chaitanya afirmou que o sentimento de profunda separação que Mādhave
     go-vṛṣādi-nāda-dīpta-pūrva-moda-meduraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Ao passear pelos bosques da floresta de Vṛndāvan, o Senhor foi recebido com alegria por enxames de abelhas que zum-biam muito ocupadas em discutir a respeito do amor puro, pairando suspensas sobre as flores desabrochadas. Milhões de árvores forrando os bosques da floresta, harmoniosamente ofereceram seus respeitos ao Senhor Gaurasundar em unís-sono, com vários pássaros peritos em cantar e dançar em total deleite. A mente do Senhor transbordou de sentimentos amo-rosos quando Ele se lembrou de como as vacas, os bezerros e os bois da morada sagrada de Vṛndāvan afetuosamente cha-mavam por Ele em Seus Passatempos anteriores, desse modo exaltando Suas emoções de amor puro. Eu ofereço minha reve-rência a esse belo Senhor Dourado, Gaurāṅgasundar, a perso-nificaçao de Kṛṣṇa-prema.
+Ao passear pelos bosques da floresta de Vṛndāvan, o Senhor foi recebido com alegria por enxames de abelhas que zumbiam muito ocupadas em discutir a respeito do amor puro, pairando suspensas sobre as flores desabrochadas. Milhões de árvores forrando os bosques da floresta, harmoniosamente ofereceram seus respeitos ao Senhor Gaurasundar em uníssono, com vários pássaros peritos em cantar e dançar em total deleite. A mente do Senhor transbordou de sentimentos amorosos quando Ele se lembrou de como as vacas, os bezerros e os bois da morada sagrada de Vṛndāvan afetuosamente chamavam por Ele em Seus Passatempos anteriores, desse modo exaltando Suas emoções de amor puro. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificaçao de Kṛṣṇa-prema.
 
 #### 40
 
@@ -103,5 +103,5 @@ Ao passear pelos bosques da floresta de Vṛndāvan, o Senhor foi recebido com a
     kṛṣṇa-kṛṣṇa-rāva-bhāva-hāsya-lāsya-bhāsvaraṁ
     prema-dhāma-devam eva naumi gaura-sundaram
 
-Desesperadamente tomado de uma inundação de amor puro, o Senhor Gaurasundar dançou e cantou enlouquecido os Santos Nomes de Kṛṣṇa. Uma corrente profusa de lágrimas fluiu de Seus olhos, passando sobre o brilho radiante de Sua enorme forma dourada, atravessando Suas vestes brilhantes como o sol, e depois se espalhando sobre o chão nas quatro direções. Os Passatempos alegres do Senhor foram extaticamente inten-sificados por tais gestos quando Ele pronunciou errado e em alto som o Santo Nome de Kṛṣṇa em um estado delirante, ou quando Ele soltou um rugido sorridente devido a estar exta-ticamente absorvido em profunda emoção. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificação de Kṛṣṇa-prema.
+Desesperadamente tomado de uma inundação de amor puro, o Senhor Gaurasundar dançou e cantou enlouquecido os Santos Nomes de Kṛṣṇa. Uma corrente profusa de lágrimas fluiu de Seus olhos, passando sobre o brilho radiante de Sua enorme forma dourada, atravessando Suas vestes brilhantes como o sol, e depois se espalhando sobre o chão nas quatro direções. Os Passatempos alegres do Senhor foram extaticamente intensificados por tais gestos quando Ele pronunciou errado e em alto som o Santo Nome de Kṛṣṇa em um estado delirante, ou quando Ele soltou um rugido sorridente devido a estar extaticamente absorvido em profunda emoção. Eu ofereço minha reverência a esse belo Senhor Dourado, Gaurāṅgasundar, a personificação de Kṛṣṇa-prema.
 

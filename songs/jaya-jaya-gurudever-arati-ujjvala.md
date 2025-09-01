@@ -95,7 +95,7 @@ Seus escritos são incomparavelmente maravilhosos e seu conhecimento é profundo
     sādhu-saṅge sadānandī sarala vinayī
     sabhā-madhye vaktā śreṣṭha sarvatra vijayī
 
-Você está sempre alegre na associaçao dos sādhus. Você é sim-ples e humilde. Nas assembleias, você é o melhor orador.
+Você está sempre alegre na associaçao dos sādhus. Você é simples e humilde. Nas assembleias, você é o melhor orador.
 
 #### 14
 
@@ -109,7 +109,7 @@ No céu dos Gauḍīya Vaiṣṇavas, você é o Āchārya solar. Você sempre g
     tomāra karuṇā māge trikāla vilāse
     gāndharvikā-giridhārī sevā-mātra āśe
 
-No passado, presente, e futuro este servo ora por sua miseri-córdia, desejando apenas servir Śrī Śrī Gāndharvikā-Giridhārī.
+No passado, presente, e futuro este servo ora por sua misericórdia, desejando apenas servir Śrī Śrī Gāndharvikā-Giridhārī.
 
 #### 16
 

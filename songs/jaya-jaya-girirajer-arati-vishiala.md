@@ -40,7 +40,7 @@ A brincadeira nos caramanchões ocultos entre suas cavernas, arbustos de mālat�
 
 > **apūrva**–A incomparável **śobhā**–beleza **kuṇḍera**–do lago [é] **yena**–como **bhāṇḍa**–uma piscina **sudhā**–de mel [e é] **mārtaṇḍa**–o sol [acima do] **sevā**–serviço [e da] **saubhāgya**–boa fortuna **indra**–do rei **sura**–dos deuses [e de] **surabhi**–Surabhi.
 
-A beleza incomparável do Śrī Govinda Kuṇḍa se assemelha a uma piscina de mel, e é o sol acima do serviço e da boa for-tuna do Senhor Indra e de Surabhi.
+A beleza incomparável do Śrī Govinda Kuṇḍa se assemelha a uma piscina de mel, e é o sol acima do serviço e da boa fortuna do Senhor Indra e de Surabhi.
 
 #### 5
 
@@ -49,7 +49,7 @@ A beleza incomparável do Śrī Govinda Kuṇḍa se assemelha a uma piscina de 
 
 > **śrī-bhakti-rakṣaka śrīdhara deva-gosvāmī**–Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj **prakāśilā**–estabeleceu **tava**–seu **dīpta**–brilhante **manohara**–cativante, atraente **sevā**–serviço.
 
-Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj estabele-ceu seu brilhante, cativante serviço.
+Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj estabeleceu seu brilhante, cativante serviço.
 
 #### 6
 
@@ -58,7 +58,7 @@ A beleza incomparável do Śrī Govinda Kuṇḍa se assemelha a uma piscina de 
 
 > **śrī-chaitanya-sārasvata-maṭha**–[O] Śrī Chaitanya Sāraswat Maṭh **yathā**–onde **sārasvata-gaṇa**–os seguidores de Śrīla Saraswatī Ṭhākur **kare**–executam [seus] **sevā**–serviços **nitya**–diários [é] **suśobhana**–extremamente belo.
 
-O Śrī Chaitanya Sāraswat Maṭh, onde os seguidores de Śrīla Saraswatī Ṭhākur executam seus serviços diários, é extrema-mente belo.
+O Śrī Chaitanya Sāraswat Maṭh, onde os seguidores de Śrīla Saraswatī Ṭhākur executam seus serviços diários, é extremamente belo.
 
 #### 7
 
@@ -67,7 +67,7 @@ O Śrī Chaitanya Sāraswat Maṭh, onde os seguidores de Śrīla Saraswatī Ṭ
 
 > **smariyā**–[Se] lembrando **śrī-raghunātha-dāsere gosvāmī**–[de] Śrīla Raghunāth Dās Goswāmī, [os seguidores de Śrīla Saraswatī Ṭhākur] **nirantara**–continuamente **kare**–executam [seus] **sevā**–serviços **antarmanā haiyā**–em meditação.
 
-Se lembrando de Śrī Raghunāth Dās Goswāmī, os seguidores de Śrīla Saraswatī Ṭhākur continuamente executam seus ser-viços meditativamente.
+Se lembrando de Śrī Raghunāth Dās Goswāmī, os seguidores de Śrīla Saraswatī Ṭhākur continuamente executam seus serviços meditativamente.
 
 #### 8
 
@@ -94,5 +94,5 @@ Sua manifestação em Kulyā é inconcebivelmente gloriosa. Dia e noite, os devo
 
 > [Você é] **nitya**–eternamente **parakāśa**–manifesta [como] **sevya**–o Senhor (Ele que é para ser servido) **o**–e **rūpe**–como **sevaka**–servo, [e] **sānande**–com alegria **e**–este **dāsa**–servo **adhama**–caído **dekhe**–observa [seu] **ārati**–ārati.
 
-Você é eternamente manifesta como Senhor e servo, e com ale-gria este servo caído observa seu ārati.
+Você é eternamente manifesta como Senhor e servo, e com alegria este servo caído observa seu ārati.
 

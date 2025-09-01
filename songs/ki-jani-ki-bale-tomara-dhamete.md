@@ -26,7 +26,7 @@ Eu não sei por qual força eu me refugiei em Sua morada. Certamente é somente 
 
 > **nātha!**–Ó Senhor! **tumi**–Você [é] **ta’**–certamente **maya**–cheio de **karuṇā**–misericórdia. **ei**–Esta [é] **āmāra**–minha **mātra**–única **bharasā**–esperança **nāhi**–Não há **pātra**–recipiente [para] t **ava**–Sua **dayā**–misericórdia **sama**–igual [a] **mora**–mim. [Você] **avaśya**–certamente **ghuchābe**–irá dissipar [todo o meu] **bhaya**–medo.
 
-Ó Senhor! Você é misericordioso. Esta é minha única espe-rança. Não há ninguém que necessite da Tua misericórdia mais do que eu. Certamente Você dispersará todo o meu medo.
+Ó Senhor! Você é misericordioso. Esta é minha única esperança. Não há ninguém que necessite da Tua misericórdia mais do que eu. Certamente Você dispersará todo o meu medo.
 
 #### 3
 

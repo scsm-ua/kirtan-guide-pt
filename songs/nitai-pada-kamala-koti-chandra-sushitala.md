@@ -22,7 +22,7 @@ Refrescantes como dez milhões de luas, os pés de lótus de Nitāi gentilmente 
     nitāi nā balila mukhe    majila saṁsāra-sukhe
         vidyā-kule ki karibe tāra
 
-A vida de alguém que não teve conexão com Nitāi passou em vão. Tal animal é muito vil. O que o conhecimento (nas-cimento aristocrático) poderá fazer por alguém que esteve imerso em prazeres mundanos e nunca chamou em voz alta: “Nitāi”?
+A vida de alguém que não teve conexão com Nitāi passou em vão. Tal animal é muito vil. O que o conhecimento (nascimento aristocrático) poderá fazer por alguém que esteve imerso em prazeres mundanos e nunca chamou em voz alta: “Nitāi”?
 
 #### 3
 

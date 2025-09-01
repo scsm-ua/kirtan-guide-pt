@@ -14,7 +14,7 @@ page: 230
     tā’ra madhye jihvā ati    lobhamaya sudurmati
         tā’ke jetā kaṭhina saṁsāre
 
-“O corpo é uma rede de ilusões, e os sentidos materiais são nossos inimigos; eles jogam a alma no oceano da mundani-dade. Entre os sentidos, a língua é a mais voraz e perversa. É muito difícil conquistar a língua neste mundo.”
+“O corpo é uma rede de ilusões, e os sentidos materiais são nossos inimigos; eles jogam a alma no oceano da mundanidade. Entre os sentidos, a língua é a mais voraz e perversa. É muito difícil conquistar a língua neste mundo.”
 
 #### 2
 
@@ -25,7 +25,7 @@ page: 230
 
 #### 3
 
-“Ó irmãos! Kṛṣṇa é muito misericordioso: para conquis-tar a língua Ele nos deu Seus remanescentes! Aceite este ali-mento nectáreo, cante as glórias de Rādhā–Kṛṣṇa, e com amor chame: ‘Chaitanya! Nitāi!’”
+“Ó irmãos! Kṛṣṇa é muito misericordioso: para conquistar a língua Ele nos deu Seus remanescentes! Aceite este alimento nectáreo, cante as glórias de Rādhā–Kṛṣṇa, e com amor chame: ‘Chaitanya! Nitāi!’”
 
     (preme bhare ḍāka re)
     (dayāl nitāi chaitanya bale preme bhare ḍāka re)

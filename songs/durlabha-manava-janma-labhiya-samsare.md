@@ -46,14 +46,14 @@ Eu trabalho arduamente como um burro. Para quem eu estou fazendo isso? Ainda ass
     dina yāya michhā kāje, niśā nidrā-vaśe
     nāhi bhāvi maraṇa nikaṭe āchhe vase
 
-Meus dias se passam em esforços inúteis, e minhas noites se passam em sono. Eu nunca considero que a morte está sen-tada por perto.
+Meus dias se passam em esforços inúteis, e minhas noites se passam em sono. Eu nunca considero que a morte está sentada por perto.
 
 #### 7
 
     bhāla manda khāi, heri, pari, chintā-hīna
     nāhi bhāvi, e deha chhāḍiba kona dina
 
-Eu como, observo a paisagem, e me visto num espírito de des-frute, sem nenhuma preocupação de que um dia vou deixar este corpo.
+Eu como, observo a paisagem, e me visto num espírito de desfrute, sem nenhuma preocupação de que um dia vou deixar este corpo.
 
 #### 8
 
@@ -88,7 +88,7 @@ Cães e chacais alegremente farão um festival com o meu corpo.
     ye dehera ei gati, tāra anugata
     saṁsāra-vaibhava āra bandhu-jana yata
 
-Este é o destino do meu corpo, seus efeitos, sua riqueza mate-rial, e de todos os meus companheiros.
+Este é o destino do meu corpo, seus efeitos, sua riqueza material, e de todos os meus companheiros.
 
 #### 13
 

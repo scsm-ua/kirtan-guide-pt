@@ -39,7 +39,7 @@ Ele é a lua de Nadia, o Senhor de Māyāpur, e o inaugurador do Hari-nām-saṅ
     rūpānanda-vardhana    sanātana-pālana
         haridāsa-modana dhīra
 
-Ele é o purificador de Sārvabhauma Bhaṭṭāchārya e o liber-tador de Mahārāj Pratāparudra. Ele é o mantenedor de Rāmānanda Rāy e o herói de todos. Ele é o guardião de Śrīla Sanātan Goswāmī e a alegria de Śrīla Rūpa Goswāmī. Ele é o deleite de Haridās Ṭhākur e é perfeitamente sóbrio.
+Ele é o purificador de Sārvabhauma Bhaṭṭāchārya e o libertador de Mahārāj Pratāparudra. Ele é o mantenedor de Rāmānanda Rāy e o herói de todos. Ele é o guardião de Śrīla Sanātan Goswāmī e a alegria de Śrīla Rūpa Goswāmī. Ele é o deleite de Haridās Ṭhākur e é perfeitamente sóbrio.
 
 #### 5
 
@@ -48,5 +48,5 @@ Ele é o purificador de Sārvabhauma Bhaṭṭāchārya e o liber-tador de Mahā
     śuddha bhakta-pālana    śuṣka-jñāna-tāḍana
         chhala-bhakti-dūṣaṇa rāma
 
-Ele é absorto nos rasas de Vraja. Ele é o dissipador do equí-voco, da luxúria e do engano. Ele é o mantenedor dos devotos puros e o dissipador do conhecimento seco. Ele é o erradica-dor da pseudo devoção e o reservatório de todo o prazer.
+Ele é absorto nos rasas de Vraja. Ele é o dissipador do equívoco, da luxúria e do engano. Ele é o mantenedor dos devotos puros e o dissipador do conhecimento seco. Ele é o erradicador da pseudo devoção e o reservatório de todo o prazer.
 

@@ -21,7 +21,7 @@ Gaurasundar canta com uma voz doce: “hare kṛṣṇa hare kṛṣṇa kṛṣ
     sukhe duḥkhe bhulo nāka
     vadane hari-nām kara re
 
-Esteja em casa, ou esteja em uma floresta, independente-mente, sempre chame alto: “Hari!” Na alegria ou na tristeza, não se esqueça: cante o Nome do Senhor em voz alta.
+Esteja em casa, ou esteja em uma floresta, independentemente, sempre chame alto: “Hari!” Na alegria ou na tristeza, não se esqueça: cante o Nome do Senhor em voz alta.
 
 #### 3
 

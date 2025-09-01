@@ -26,12 +26,12 @@ page: 36
     bhajiba baliyā ese saṁsāra-bhitare
     bhuliyā rahile tumi avidyāra bhare
 
-“Você veio a este mundo dizendo: ‘Oh Senhor, eu Te servi-rei‘, mas tendo esquecido essa promessa, você permaneceu na ignorância.
+“Você veio a este mundo dizendo: ‘Oh Senhor, eu Te servirei‘, mas tendo esquecido essa promessa, você permaneceu na ignorância.
 
     (bhuliyā rahile)
     (avidyāra mohe paḍe tumi bhuliyā rahile)
 
-“Você esqueceu e permaneceu. Você caiu na confusão da ilu-são, esqueceu (sua promessa), e permaneceu lá.
+“Você esqueceu e permaneceu. Você caiu na confusão da ilusão, esqueceu (sua promessa), e permaneceu lá.
 
 #### 3
 

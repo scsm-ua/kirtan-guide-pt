@@ -59,7 +59,7 @@ page: 208
     daśa-mukha-mauli-baliṁ ramaṇīyam
     keśava dhṛta-rāma-śarīra jaya jagadīśa hare
 
-Ó Hari! Ó Keśava! Ó Senhor do universo! Você assumiu a forma de Rāmachandra! Toda glória a Ti! Durante a batalha em Laṅka Você distribuiu a todas as direções a oferenda mais agradável e coroada: as dez cabeças de Rāvaṇ, que eram dese-jadas pelos guardiões das direções.
+Ó Hari! Ó Keśava! Ó Senhor do universo! Você assumiu a forma de Rāmachandra! Toda glória a Ti! Durante a batalha em Laṅka Você distribuiu a todas as direções a oferenda mais agradável e coroada: as dez cabeças de Rāvaṇ, que eram desejadas pelos guardiões das direções.
 
 #### 8
 
@@ -75,7 +75,7 @@ page: 208
     sadaya-hṛdaya darśita-paśu-ghātam
     keśava dhṛta-buddha-śarīra jaya jagadīśa hare
 
-Ó Hari! Ó Keśava! Ó Senhor do universo! Você assumiu a forma de Buddha! Toda glória a Ti! Com Seu coração cheio de compaixão, Você censura as injunções escriturais que sancio-nam o sacrifício animal.
+Ó Hari! Ó Keśava! Ó Senhor do universo! Você assumiu a forma de Buddha! Toda glória a Ti! Com Seu coração cheio de compaixão, Você censura as injunções escriturais que sancionam o sacrifício animal.
 
 #### 10
 
@@ -101,5 +101,5 @@ page: 208
     mlechchhān mūrchchhayate daśākṛti-kṛte kṛṣṇāya
         tubhyaṁ namaḥ
 
-Ofereço minha reverência a Śrī Kṛṣṇa, que assume dez formas e resgata os Vedas, sustenta a Montanha Mandara, levanta a Terra, parte demônios ao meio, engana Bali Mahārāj, mata os kṣatriyas, conquista Rāvaṇ, carrega um arado, mostra com-paixão e aniquila os ímpios.
+Ofereço minha reverência a Śrī Kṛṣṇa, que assume dez formas e resgata os Vedas, sustenta a Montanha Mandara, levanta a Terra, parte demônios ao meio, engana Bali Mahārāj, mata os kṣatriyas, conquista Rāvaṇ, carrega um arado, mostra compaixão e aniquila os ímpios.
 

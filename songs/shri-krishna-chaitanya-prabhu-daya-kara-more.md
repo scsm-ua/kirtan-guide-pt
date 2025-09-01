@@ -32,7 +32,7 @@ Você descendeu para salvar as almas caídas. Ó Senhor, Você não vai encontra
     dayā kara sītā-pati advaita gosāñi
     tava kṛpā-bale pāi chaitanya-nitāi
 
-Ó Advaita Gosāi, Senhor de Sītā Ṭhākurāṇī! Seja misericor-dioso comigo. Pela Sua misericórdia alcançarei Śrī Chaitanya e Nitāi.
+Ó Advaita Gosāi, Senhor de Sītā Ṭhākurāṇī! Seja misericordioso comigo. Pela Sua misericórdia alcançarei Śrī Chaitanya e Nitāi.
 
 #### 5
 
@@ -58,5 +58,5 @@ Você descendeu para salvar as almas caídas. Ó Senhor, Você não vai encontra
     (dayā kara prabhupāda śrī-gaura-prakāśa)
     (tava jana kṛpā māge ei adhama dāsa)
 
-Ó Śrīla Prabhupād, manifestação de Śrī Gaura! Seja mise-ricordioso. Este servo caído ora pela misericórdia de seus associados.
+Ó Śrīla Prabhupād, manifestação de Śrī Gaura! Seja misericordioso. Este servo caído ora pela misericórdia de seus associados.
 

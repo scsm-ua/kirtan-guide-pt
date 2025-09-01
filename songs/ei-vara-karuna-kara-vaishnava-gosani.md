@@ -25,7 +25,7 @@ Se alguém chega até você, seus pecados vão embora. Onde tal mestre misericor
     gaṅgāra-paraśa ha-ile paśchāte pāvana
     darśane pavitra kara—ei tomāra guṇa
 
-Se o Ganges toca alguém, essa pessoa é posteriormente purifi-cada, mas você purifica as almas simplesmente ao olhar para elas—tal é o seu poder.
+Se o Ganges toca alguém, essa pessoa é posteriormente purificada, mas você purifica as almas simplesmente ao olhar para elas—tal é o seu poder.
 
 #### 4
 
@@ -46,5 +46,5 @@ Govinda sempre reside em seu coração, e Ele diz: “Meus devotos são o Meu co
     prati janme kari āśā charaṇera dhūli
     narottame kara dayā āpnāra bali’
 
-A cada nascimento eu aspiro ao pó dos seus pés. Sede miseri-cordioso com Narottam, considerando-o seu.
+A cada nascimento eu aspiro ao pó dos seus pés. Sede misericordioso com Narottam, considerando-o seu.
 

@@ -78,5 +78,5 @@ Beba o néctar do Nome de Kṛṣṇa e acalme a alma de Bhakti Vinod. Não há 
     avidyā-timira-tapana-rūpe
         hṛd-gagane virāje
 
-Desejando abençoar todas as almas, o doce Nome do Senhor vem a este mundo e surge como o Sol dentro do céu do cora-ção para dissipar a escuridão da ignorância.
+Desejando abençoar todas as almas, o doce Nome do Senhor vem a este mundo e surge como o Sol dentro do céu do coração para dissipar a escuridão da ignorância.
 

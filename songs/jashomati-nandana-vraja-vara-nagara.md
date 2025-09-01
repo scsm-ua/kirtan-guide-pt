@@ -21,7 +21,7 @@ page: 22
     vipina-purandara    navīna nāgara-vara
         vaṁśī-vadana suvāsā
 
-Seus Nomes e Passatempos nectáreos são todos transcenden-tais. Ele é o rei das florestas de Vraja e o melhor dos jovens amantes. Ele toca a flauta lindamente.
+Seus Nomes e Passatempos nectáreos são todos transcendentais. Ele é o rei das florestas de Vraja e o melhor dos jovens amantes. Ele toca a flauta lindamente.
 
 #### 3
 
@@ -39,5 +39,5 @@ Ele é o guardião dos moradores de Vraja, o destruidor dos demônios e o guardi
     śrī-rādhā-vallabha    vṛndāvana-naṭa-vara
         bhakativinod-āśraya
 
-Ele é um espião nas margens do Yamunā e o ladrão das rou-pas das gopīs. Ele é o desfrutador do rāsa-līlā e a personifi-cação da misericórdia. Ele é o amado de Śrī Rādhā, o grande dançarino de Vṛndāvan e o abrigo de Bhakti Vinod.
+Ele é um espião nas margens do Yamunā e o ladrão das roupas das gopīs. Ele é o desfrutador do rāsa-līlā e a personificação da misericórdia. Ele é o amado de Śrī Rādhā, o grande dançarino de Vṛndāvan e o abrigo de Bhakti Vinod.
 

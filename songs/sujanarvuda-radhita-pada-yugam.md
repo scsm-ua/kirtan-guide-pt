@@ -13,7 +13,7 @@ page: 159
     varadābhaya-dāyaka-pūjya-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-O meu mestre, Prabhupād Śrīla Bhakti Siddhanta Saraswatī Ṭhākur, estabeleceu a religião da era, o Kṛṣṇa-saṅkīrtan, e é o ministro-chefe da assembleia universal dos líderes Vaiṣṇavas. Seus pés de lótus são adorados por milhões de almas virtuo-sas e cumprem os desejos daqueles que dissipam os receios das almas. Eternamente eu ofereço minha reverência aos ado-ráveis pés do meu mestre.
+O meu mestre, Prabhupād Śrīla Bhakti Siddhanta Saraswatī Ṭhākur, estabeleceu a religião da era, o Kṛṣṇa-saṅkīrtan, e é o ministro-chefe da assembleia universal dos líderes Vaiṣṇavas. Seus pés de lótus são adorados por milhões de almas virtuosas e cumprem os desejos daqueles que dissipam os receios das almas. Eternamente eu ofereço minha reverência aos adoráveis pés do meu mestre.
 
 #### 2
 
@@ -22,7 +22,7 @@ O meu mestre, Prabhupād Śrīla Bhakti Siddhanta Saraswatī Ṭhākur, estabele
     gati-vañchita-vañchakāchintya-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-Ele é o líder das grandes almas que são dotadas de devoção e o único, grandiosamente misericordioso abrigo dos caídos. Seus inconcebíveis pés são o abrigo até mesmo dos engana-dores, enganando-os. Eternamente eu ofereço minha reverên-cia aos pés de lótus do meu mestre.
+Ele é o líder das grandes almas que são dotadas de devoção e o único, grandiosamente misericordioso abrigo dos caídos. Seus inconcebíveis pés são o abrigo até mesmo dos enganadores, enganando-os. Eternamente eu ofereço minha reverência aos pés de lótus do meu mestre.
 
 #### 3
 
@@ -49,7 +49,7 @@ Ele é a lua que encanta seus servos, que são como estrelas. Seu grande rugido,
     dayanīya-gaṇārpita-gaura-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-Ele revela a glória divina de Śrī Gaura Dham, propõe a cele-brada graça de Śrī Gaura em todo o mundo, e instala Śrī Gaura dentro dos corações dos destinatários de sua graça. Eternamente eu ofereço minha reverência aos pés do meu mestre.
+Ele revela a glória divina de Śrī Gaura Dhām, propõe a celebrada graça de Śrī Gaura em todo o mundo, e instala Śrī Gaura dentro dos corações dos destinatários de sua graça. Eternamente eu ofereço minha reverência aos pés do meu mestre.
 
 #### 6
 
@@ -67,7 +67,7 @@ Ele é o refúgio eterno das almas rendidas a Śrī Gaura e ao Guru do universo.
     kavirāja-narottama-sakhya-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-Ele mostra a glória de Śrī Rūpa, Śrī Sanātan e Śrī Raghunāth. Neste mundo ele é glorificado como sendo não diferente de Śrī Jīva e o complemento direto de Śrīla Kṛṣṇadās Kavirāj e Śrīla Narottam Ṭhākur. Eternamente eu ofereço minha reve-rência aos pés do meu mestre.
+Ele mostra a glória de Śrī Rūpa, Śrī Sanātan e Śrī Raghunāth. Neste mundo ele é glorificado como sendo não diferente de Śrī Jīva e o complemento direto de Śrīla Kṛṣṇadās Kavirāj e Śrīla Narottam Ṭhākur. Eternamente eu ofereço minha reverência aos pés do meu mestre.
 
 #### 8
 
@@ -76,7 +76,7 @@ Ele mostra a glória de Śrī Rūpa, Śrī Sanātan e Śrī Raghunāth. Neste mu
     janakādhika-vatsala-snigdha-padaṁ
     praṇamāmi sadā prabhupāda-padam
 
-Ele é a personificação do Hari-kīrtan. Ele misericordiosa-mente alivia a Mãe Terra do peso em cima dela. Ele é um asso-ciado de Śrī Gaura, e mais amável e afetuoso do que um pai. Eternamente eu ofereço minha reverência aos pés do meu mestre.
+Ele é a personificação do Hari-kīrtan. Ele misericordiosamente alivia a Mãe Terra do peso em cima dela. Ele é um associado de Śrī Gaura, e mais amável e afetuoso do que um pai. Eternamente eu ofereço minha reverência aos pés do meu mestre.
 
 #### 9
 

@@ -33,7 +33,7 @@ Eles são a única fonte de alegria. Nityānanda e Gaurachandra são a única fo
     (viṣay-kathā parihari’ mukhe bala gaurahari)
     (grāmya-kathā parihari’ mukhe bala gaurahari)
 
-Cantem alto: “Gaurahari”! Abandonem as conversas mun-danas e cantem alto: “Gaurahari”! Abandonem as conversas vulgares e cantem alto:”Gaurahari”!
+Cantem alto: “Gaurahari”! Abandonem as conversas mundanas e cantem alto: “Gaurahari”! Abandonem as conversas vulgares e cantem alto:”Gaurahari”!
 
     dekha ore bhāi    tribhuvane nāi
         emana dayāla dātā

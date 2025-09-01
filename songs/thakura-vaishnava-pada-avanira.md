@@ -31,7 +31,7 @@ A água dos pés dos Vaiṣṇavas tem o poder de dar a alguém prema-bhakti. Na
     vaiṣṇavera pādadoka    sama nahe ei saba
         yāte haya vañchhita pūraṇa
 
-O poder purificante da água dos lugares de peregrinação tem sido descrito nos Purāṇas. Tais declarações são uma artima-nha devocional. A água dos lugares de peregrinação nunca é igual à água dos pés dos Vaiṣṇavas, que realizam todos os desejos.
+O poder purificante da água dos lugares de peregrinação tem sido descrito nos Purāṇas. Tais declarações são uma artimanha devocional. A água dos lugares de peregrinação nunca é igual à água dos pés dos Vaiṣṇavas, que realizam todos os desejos.
 
 #### 4
 

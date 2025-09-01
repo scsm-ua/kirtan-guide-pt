@@ -32,7 +32,7 @@ Nṛhari Tīrtha e Mādhava Tīrtha também foram discípulos na linha de Madhva
     tā̐hāra kiṅkara jaya-    dharma nāme parichaya
         paramparā jāna bhāla mate
 
-Depois de Jñānasindhu veio Dayānidhi. O servo de Dayānidhi foi Vidyānidhi. Depois de Vidyānidhi veio Rājendra. O servo de Rājendra foi Jaya Dharma. Conheça o paramparā adequa-damente desta forma.
+Depois de Jñānasindhu veio Dayānidhi. O servo de Dayānidhi foi Vidyānidhi. Depois de Vidyānidhi veio Rājendra. O servo de Rājendra foi Jaya Dharma. Conheça o paramparā adequadamente desta forma.
 
 #### 4
 
@@ -95,7 +95,7 @@ O seguidor de Śrīla Gaura Kiśor Dās Bābājī, a grande alma Dayita Dās (Ś
     susiddhānta mūrti-dhara    śrī śrīdhara guru-vara
         rupānuga-sādhu-śreya-sadma
 
-A forma divina não diferente de Śrī Dayita Dās, a manifesta-ção viva de Śrīla Svarūp Dāmodar, Śrī Rūpa e Śrī Raghunāth, cujos pés de lótus devem ser servidos eternamente, é o melhor dos Gurus, Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj. Ele é a personificação do perfeito siddhanta e o refú-gio final dos sādhus que seguem Śrī Rūpa.
+A forma divina não diferente de Śrī Dayita Dās, a manifestação viva de Śrīla Svarūp Dāmodar, Śrī Rūpa e Śrī Raghunāth, cujos pés de lótus devem ser servidos eternamente, é o melhor dos Gurus, Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj. Ele é a personificação do perfeito siddhanta e o refúgio final dos sādhus que seguem Śrī Rūpa.
 
 #### 11
 
@@ -104,7 +104,7 @@ A forma divina não diferente de Śrī Dayita Dās, a manifesta-ção viva de Ś
     tā̐ra priya manonīta    āchāra-prachāre rata
         śrī bhakti-nirmalāchārya nāma
 
-Seu querido discípulo, que constantemente se esforça para realizar seus desejos, é Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj. O querido sucessor de Śrīla Govinda Mahārāj, que é dedicado a praticar e pregar seus ensinamen-tos, é Śrīla Bhakti Nirmal Āchārya Mahārāj.
+Seu querido discípulo, que constantemente se esforça para realizar seus desejos, é Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj. O querido sucessor de Śrīla Govinda Mahārāj, que é dedicado a praticar e pregar seus ensinamentos, é Śrīla Bhakti Nirmal Āchārya Mahārāj.
 
 #### 12
 

@@ -40,7 +40,7 @@ Humildade, autossubmissão, abraçar a proteção do Senhor, manter a fé de que
 
 > **svīkāra**–Aceitação **mātra**–apenas **kāryera**–de ações **anukūla**–favoráveis **bhakti**–à devoção **aṅgikāra**–aceitação [da] **varjana**–rejeição [à] **bhāva**–natureza, disposição **pratikūla**–desfavorável **bhakti**–à devoção.
 
-Engajar-se apenas em atividades que são favoráveis à devo-ção, rejeitando tudo o que é desfavorável à devoção ...
+Engajar-se apenas em atividades que são favoráveis à devoção, rejeitando tudo o que é desfavorável à devoção ...
 
 #### 5
 

@@ -15,7 +15,7 @@ page: 135
 
 > **mārjanaṁ**–O limpador **darpaṇa**–do espelho **chetaḥ**–da consciência **nirvāpaṇaṁ**–o extintor **mahā**–do grande **agni**–fogo [da] **dāva**–floresta **bhava**–da existência material **vitaraṇaṁ**–que faz brilhar **chandrikā**–o luar **kairava**–sobre a lótus noturna **śreyaḥ**–da boa fortuna **jīvanam**–a vida **vadhū**–da esposa **vidyā**–do conhecimento **vardhanaṁ**–o expansor **ambudhi**–do oceano **ānanda**–de êxtase **āsvādanaṁ**–o gosto **pūrṇa**–completo **amṛta**–néctar **prati**–a cada **padaṁ**–momento [e] **snapanaṁ**–o alívio **sarva**–de todo **ātma**–eu. [Que o] **saṅkīrtanam**–cantar [do Nome] **śrī-kṛṣṇa**–de Śrī Kṛṣṇa [possa ser] **paraṁ**–supremamente **vijayate**–vitorioso!
 
-O Śrī Kṛṣṇa-saṅkīrtan limpa o espelho da consciência, extin-gue o feroz incêndio florestal da [que é a] existência material, faz brilhar o luar na lótus noturna da [nossa] boa fortuna, é a vida do conhecimento divino, expande o oceano de êxtase, é o sabor de todo o néctar a cada momento, e acalma a tota-lidade do ser. Que o Śrī Kṛṣṇa-saṅkīrtan seja supremamente vitorioso!
+O Śrī Kṛṣṇa-saṅkīrtan limpa o espelho da consciência, extingue o feroz incêndio florestal da [que é a] existência material, faz brilhar o luar na lótus noturna da [nossa] boa fortuna, é a vida do conhecimento divino, expande o oceano de êxtase, é o sabor de todo o néctar a cada momento, e acalma a totalidade do ser. Que o Śrī Kṛṣṇa-saṅkīrtan seja supremamente vitorioso!
 
 ## Gīti
 
@@ -35,7 +35,7 @@ O dourado Gorā, o Salvador da Era de Kali, canta assim, cheio de amor.
 
 > **jaya**–Toda a glória **kīrtana**–ao cantar **kṛṣṇa**–do Nome de Kṛṣṇa, [que é] **parimārjanakārī**–o purificador **darpaṇa**–do espelho **chitta**–da consciência [e] **bihārī**–o deleite **chitta**–da alma!
 
-Toda a glória ao Kṛṣṇa-kīrtan, que limpa o espelho da consci-ência e deleita a alma!
+Toda a glória ao Kṛṣṇa-kīrtan, que limpa o espelho da consciência e deleita a alma!
 
 #### 3
 
@@ -44,7 +44,7 @@ Toda a glória ao Kṛṣṇa-kīrtan, que limpa o espelho da consci-ência e de
 
 > **jaya**–Toda a glória **kīrtana**–ao cantar **kṛṣṇa**–do Nome de Kṛṣṇa, [que] **nirvāpaṇa-vṛtti**–extingue **dāva**–o fogo **helā**–da miserável **bhava**–existência material [e é] **nivṛtti**–finalizador [de todo] **kleśa**–sofrimento!
 
-Toda a glória ao Kṛṣṇa-kīrtan, que extingue o fogo da existên-cia material e extermina todo sofrimento!
+Toda a glória ao Kṛṣṇa-kīrtan, que extingue o fogo da existência material e extermina todo sofrimento!
 
 #### 4
 

@@ -30,7 +30,7 @@ Ele não aniquilou os caídos, pecadores ímpios de coração; Ele deu a eles o 
     (ke nibi ke nibi bale)
     (yeche yeche yeche beḍāy)
 
-“Quem irá pegar? Quem irá pegar? Ele sai perguntando, per-guntando, e perguntando.”
+“Quem irá pegar? Quem irá pegar? Ele sai perguntando, perguntando, e perguntando.”
 
 #### 3
 
@@ -40,7 +40,7 @@ Ele não aniquilou os caídos, pecadores ímpios de coração; Ele deu a eles o 
     kāṅgale pāiye    khāila nāchiye
         bājāiye karatāli
 
-Ele distribuiu livremente por todo o mundo o amor divino que é desejado até mesmo por Brahmā e Śiva. Os pobres rece-beram e saborearam, dançando e batendo palmas.
+Ele distribuiu livremente por todo o mundo o amor divino que é desejado até mesmo por Brahmā e Śiva. Os pobres receberam e saborearam, dançando e batendo palmas.
 
     (karatāli bājāiye)
     (gaurahari hari bale    karatāli bājāiye)
@@ -77,7 +77,7 @@ Sirva! Sirva Gaurahari! Yamarāj foge de Seu Nome.
     e tina bhuvana    ānande bharila
         uṭhila maṅgala-sora
 
-Os três mundos se encheram de alegria, e um tumulto auspi-cioso surgiu.
+Os três mundos se encheram de alegria, e um tumulto auspicioso surgiu.
 
     (ānander ār sīmā nāi re)
     (gauraharir āgamane    ānander ār sīmā nāi re)
@@ -85,7 +85,7 @@ Os três mundos se encheram de alegria, e um tumulto auspi-cioso surgiu.
     (gauraharir āgamane    premānander udaya hala)
     (premānander udaya hala    sabāi mile haribola)
 
-Não há limite para a nossa alegria! Com a chegada de Gaurahari, não há limite para a nossa alegria! Toda infelici-dade desapareceu, e não há limite para a nossa alegria! Com a chegada de Gaurahari, a alegria do amor divino surgiu, e todos juntos cantam: “Hari!”
+Não há limite para a nossa alegria! Com a chegada de Gaurahari, não há limite para a nossa alegria! Toda infelicidade desapareceu, e não há limite para a nossa alegria! Com a chegada de Gaurahari, a alegria do amor divino surgiu, e todos juntos cantam: “Hari!”
 
 #### 6
 

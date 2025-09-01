@@ -22,7 +22,7 @@ page: 85
     prema-kalpataru    śrī gaurāṅga āmāra
         tāhāre bhavili viṣe
 
-Ó mente, desejando beber néctar, você constantemente masti-gou galhos com espinhos (e confundiu o sangue em sua boca com néctar). Meu Senhor Gaurāṅga é uma árvore realizadora dos desejos de amor divino, mas você o considerou veneno.
+Ó mente, desejando beber néctar, você constantemente mastigou galhos com espinhos (e confundiu o sangue em sua boca com néctar). Meu Senhor Gaurāṅga é uma árvore realizadora dos desejos de amor divino, mas você o considerou veneno.
 
 #### 3
 
@@ -31,7 +31,7 @@ page: 85
     ‘ikṣu-daṇḍa’ bhāvi’    kāṭha chuṣili (mana)
         kemane pāibi miṭha
 
-Ó mente, buscando uma fragrância, você cheirou a inodora flor palāśa e insetos entraram em seu nariz. Ó mente, consi-derando ser cana de açúcar, você chupou madeira seca. Como você irá saborear a doçura desse jeito?
+Ó mente, buscando uma fragrância, você cheirou a inodora flor palāśa e insetos entraram em seu nariz. Ó mente, considerando ser cana de açúcar, você chupou madeira seca. Como você irá saborear a doçura desse jeito?
 
 #### 4
 

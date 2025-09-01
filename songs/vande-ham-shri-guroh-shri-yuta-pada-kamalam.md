@@ -18,7 +18,7 @@ author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
 
 *(Śrī Chaitanya-charitāmṛta: Antya-līlā, 2.1)*
 
-Eu ofereço minha reverência aos pés de lótus de Śrī Guru, aos Gurus predecessores, aos Vaiṣṇavas, Śrī Rūpa, Śrī Sanātan, Śrī Raghunāth, Śrī Jīva, seus seguidores, Śrī Advaita Prabhu, Śrī Nityānanda Prabhu, Śrī Kṛṣṇa Chaitanyadev e Seus associa-dos, Śrī Śrī Rādhā-Kṛṣṇa, Śrī Lalitā Devī, Śrī Viśākhā Devī, e todas as Suas associadas.
+Eu ofereço minha reverência aos pés de lótus de Śrī Guru, aos Gurus predecessores, aos Vaiṣṇavas, Śrī Rūpa, Śrī Sanātan, Śrī Raghunāth, Śrī Jīva, seus seguidores, Śrī Advaita Prabhu, Śrī Nityānanda Prabhu, Śrī Kṛṣṇa Chaitanyadev e Seus associados, Śrī Śrī Rādhā-Kṛṣṇa, Śrī Lalitā Devī, Śrī Viśākhā Devī, e todas as Suas associadas.
 
     oṁ ajñāna-timirāndhasya jñānāñjana-śalākayā
     chakṣur unmilitaṁ yena tasmai śrī-gurave namaḥ

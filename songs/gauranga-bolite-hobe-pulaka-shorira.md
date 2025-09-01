@@ -11,7 +11,7 @@ page: 118
     ‘gaurāṅga’ balite habe pulaka śarīra
     ‘hari hari’ balite nayane va’be nīra
 
-Quando os pelos do meu corpo ficarão em pé quando eu can-tar: “Gaurāṅga!”? Quando lágrimas se derramarão dos meus olhos quando eu cantar: “Hari! Hari!”?
+Quando os pelos do meu corpo ficarão em pé quando eu cantar: “Gaurāṅga!”? Quando lágrimas se derramarão dos meus olhos quando eu cantar: “Hari! Hari!”?
 
 #### 2
 

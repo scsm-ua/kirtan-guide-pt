@@ -15,7 +15,7 @@ page: 51
 
 > **vande**–Eu ofereço [minha] reverência **śrī**–aos sagrados **charaṇa**–pés [de] **aravindam**–lótus **guroḥ**–do mestre divino, **arṇavasya**–o oceano **kalyāṇa**–de auspiciosas **guṇa**–qualidades [que] **prāptasya**–toma **ghanāghanatvam**–a forma de uma nuvem densa **kāruṇya**–de compaixão **trāṇāya**–para liberar [as] **loka**–almas **līḍha**–engolidas **dāva**–pela floresta [do] **anala**–fogo **saṁsāra**–da existência material.
 
-Ofereço minha reverência aos pés de lótus de Śrī Guru, o oce-ano de qualidades auspiciosas que assume a forma de uma densa nuvem de misericórdia para liberar as almas engolidas pelo fogo da floresta da existência material.
+Ofereço minha reverência aos pés de lótus de Śrī Guru, o oceano de qualidades auspiciosas que assume a forma de uma densa nuvem de misericórdia para liberar as almas engolidas pelo fogo da floresta da existência material.
 
 #### 2
 
@@ -26,7 +26,7 @@ Ofereço minha reverência aos pés de lótus de Śrī Guru, o oce-ano de qualid
 
 > **vande**–Eu ofereço [minha] reverência **śrī**–aos sagrados **charaṇa**–pés **aravindam**–de lótus **guroḥ**–do mestre divino, [que se torna] **mādyat**–extático **manasaḥ**–no coração **kīrtana**–ao cantar, **nṛtya**–dançar, **gīta**–cantar, [e tocar] **vāditra**–instrumentos musicais **mahāprabhoḥ**–para Mahāprabhu [e] **rasena**–com o [sabor] do rasa **bhājaḥ**–experimenta **taraṅga**–ondas **romāñcha**–de arrepios, **kampa**–tremor, [e] **aśru**–lágrimas.
 
-Ofereço minha reverência aos pés de lótus de Śrī Guru, que se torna extático ao entoar, dançar, cantar e tocar instrumentos para Śrīman Mahāprabhu, e que com o sabor do rasa experi-menta ondas de arrepios, tremor e lágrimas.
+Ofereço minha reverência aos pés de lótus de Śrī Guru, que se torna extático ao entoar, dançar, cantar e tocar instrumentos para Śrīman Mahāprabhu, e que com o sabor do rasa experimenta ondas de arrepios, tremor e lágrimas.
 
 #### 3
 
@@ -92,7 +92,7 @@ Ofereço minha reverência aos pés de lótus de Śrī Guru. Ele é dito por tod
 
 > **vande**–Eu ofereço [minha] reverência **śrī**–aos sagrados **charaṇa**–pés [de] **aravindam**–lótus **guroḥ**–do mestre divino **dhyāyan**–meditando nele [e] **stuvan**–louvando [a] **yaśaḥ**–glória **tasya**–dele **tri-sandhyam**–nas três junções [do dia, por] **yasya**–cuja **prasādāt**–graça [alguém ganha] **prasādaḥ**–a graça **bhagavat**–do Senhor, [e] **aprasādāt**–sem a graça **yasya**–de quem **na**–não [se tem] **gatiḥ**–abrigo **kutaḥ api**–em lugar nenhum.
 
-Ofereço minha reverência aos pés de lótus de Śrī Guru, medi-tando nele, e louvando sua glória nas três junções do dia. Pela graça dele, ganhamos a graça do Senhor. Sem a graça dele, ninguém tem abrigo em lugar algum.
+Ofereço minha reverência aos pés de lótus de Śrī Guru, meditando nele, e louvando sua glória nas três junções do dia. Pela graça dele, ganhamos a graça do Senhor. Sem a graça dele, ninguém tem abrigo em lugar algum.
 
 #### 9
 

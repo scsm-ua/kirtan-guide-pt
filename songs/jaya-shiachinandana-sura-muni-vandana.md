@@ -22,7 +22,7 @@ Todas as glórias a Śrī Śachī Nandan, que é adorado pelos semideuses e sáb
     jaya lakṣmī-viṣṇu-priyā    viśvambhara priya hiyā
         jaya priya kiṅkara īśāna
 
-Śrī Śachī Nandan é o deleite aos olhos de todos e é afetuoso com Seu irmão Viśvarūp. Ele é o mantenedor e a personifica-ção da boa fortuna do universo. Toda glória a Lakṣmī Priyā e Viṣṇu Priyā, que são queridas do coração de Viśvambhar! Toda glória a seu querido servo Īśān!
+Śrī Śachī Nandan é o deleite aos olhos de todos e é afetuoso com Seu irmão Viśvarūp. Ele é o mantenedor e a personificação da boa fortuna do universo. Toda glória a Lakṣmī Priyā e Viṣṇu Priyā, que são queridas do coração de Viśvambhar! Toda glória a seu querido servo Īśān!
 
 #### 3
 
@@ -40,5 +40,5 @@ Toda glória a Sītā Ṭhākurāṇī e Advaita Āchārya! Toda glória a Māli
     vandi sabākāra pāya    adhamere kṛpā haya
         bhakti sapārṣada-prabhupāda
 
-Toda glória a Murāri Gupta, Mukunda Datta, e Puṇḍarīk Vidyānidhi! Toda glória a todos os associados de Śrī Śachī Nandan! Ofereço minha reverência a seus pés. Por sua mise-ricórdia sobre esta alma caída, sirvo a Śrīla Prabhupād e seus associados.
+Toda glória a Murāri Gupta, Mukunda Datta, e Puṇḍarīk Vidyānidhi! Toda glória a todos os associados de Śrī Śachī Nandan! Ofereço minha reverência a seus pés. Por sua misericórdia sobre esta alma caída, sirvo a Śrīla Prabhupād e seus associados.
 
