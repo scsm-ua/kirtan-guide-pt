@@ -25,7 +25,7 @@ Repetidamente ofereço minha reverência aos Vaiṣṇavas, que são purificador
 
 *(Śrī Chaitanya-charitāmṛta: Ādi-līlā, 1.14)*
 
-Ofereço minha reverência à manifestação de Śrī Kṛṣṇa em cinco aspectos: na forma de um devoto, depois em sua forma expandida, ao devoto-avatār, ao devoto, e ao devotośakti.
+Ofereço minha reverência à manifestação de Śrī Kṛṣṇa em cinco aspectos: na forma de um devoto, depois em sua forma expandida, ao devoto-avatār, ao devoto, e ao devoto-śakti.
 
 *(Śrīla Kṛṣṇadās Kavirāj Goswāmī)*
 
