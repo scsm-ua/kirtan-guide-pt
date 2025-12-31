@@ -1,5 +1,6 @@
 ---
 page: 180
+first_line: prema-mugdha-rudra-rāja-śaurya-vīrya-vikramaṁ
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

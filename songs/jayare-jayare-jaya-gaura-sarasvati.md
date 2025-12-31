@@ -1,5 +1,6 @@
 ---
 page: 30
+first_line: jayare jayare jaya gaura-sarasvatī
 ---
 
 # Śrī Sāraswat Ārati

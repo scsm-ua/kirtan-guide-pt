@@ -1,5 +1,6 @@
 ---
 page: 67
+first_line: ki-rūpe pāiba sevā
 ---
 
 # Ki-rūpe pāiba sevā

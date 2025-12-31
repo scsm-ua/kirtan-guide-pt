@@ -1,5 +1,6 @@
 ---
 page: 208
+first_line: pralaya-payodhi-jale dhṛtavān asi vedaṁ
 ---
 
 # Śrī Daśāvatār Stotram

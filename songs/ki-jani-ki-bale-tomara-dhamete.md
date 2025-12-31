@@ -1,5 +1,6 @@
 ---
 page: 111
+first_line: ki jāni ki bale
 ---
 
 # Goptṛtve Varaṇa

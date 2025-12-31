@@ -1,5 +1,6 @@
 ---
 page: 23
+first_line: jaya śachī-nandana
 ---
 
 # Śrī Śachīnandana-vandanā

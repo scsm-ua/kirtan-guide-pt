@@ -1,5 +1,6 @@
 ---
 page: 21
+first_line: kali-kukkura-kadana yadi chāo he
 ---
 
 # Prabhāti Gīti
@@ -34,7 +35,7 @@ Ele é a lua de Nadia, o Senhor de Māyāpur, e o inaugurador do Hari-nām-saṅ
 
 #### 4
 
-    sārvabhauma-śodhana    gajapati-tāraṇa 
+    sārvabhauma-śodhana    gajapati-tāraṇa
         rāmānanda-poṣaṇa vīra
     rūpānanda-vardhana    sanātana-pālana
         haridāsa-modana dhīra

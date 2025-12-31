@@ -1,5 +1,6 @@
 ---
 page: 142
+first_line: prabhu tava pada-yuge mora nivedana
 ---
 
 # Śrī Śikṣāṣṭakam

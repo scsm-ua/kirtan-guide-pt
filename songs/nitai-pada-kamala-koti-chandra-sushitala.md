@@ -1,5 +1,6 @@
 ---
 page: 71
+first_line: nitāi-pada-kamala
 ---
 
 # Manaḥ-Śikṣā

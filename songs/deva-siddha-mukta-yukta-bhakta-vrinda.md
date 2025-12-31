@@ -1,5 +1,6 @@
 ---
 page: 163
+first_line: deva-siddha-mukta-yukta-bhakta-vṛnda-vanditaṁ
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

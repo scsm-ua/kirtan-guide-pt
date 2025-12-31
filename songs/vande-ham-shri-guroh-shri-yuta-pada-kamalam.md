@@ -1,6 +1,7 @@
 ---
 page: 41
 author: Śrīla Kṛṣṇadās Kavirāj Goswāmī
+first_line: vande ’haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ
 ---
 
 # Vandanā

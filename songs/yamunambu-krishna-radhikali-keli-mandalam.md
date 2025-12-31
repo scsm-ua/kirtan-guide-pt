@@ -1,5 +1,6 @@
 ---
 page: 198
+first_line: yāmunāmbu-kṛṣṇa-rādhikāli-keli-maṇḍalaṁ
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

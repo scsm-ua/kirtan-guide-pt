@@ -1,5 +1,6 @@
 ---
 page: 223
+first_line: hari haraye namaḥ kṛṣṇa yādavāya namaḥ
 ---
 
 # Nām-saṅkīrtan

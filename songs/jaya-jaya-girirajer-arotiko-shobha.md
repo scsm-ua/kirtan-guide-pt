@@ -1,5 +1,6 @@
 ---
 page: 18
+first_line: jaya jaya girirājer āratika-śobhā
 ---
 
 # Śrī Śrī Girirāj Govardhan Ārati

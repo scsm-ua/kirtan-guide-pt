@@ -1,5 +1,6 @@
 ---
 page: 151
+first_line: gāite govinda-nāma upajila bhāva-grāma
 ---
 
 # Śrī Śikṣāṣṭakam

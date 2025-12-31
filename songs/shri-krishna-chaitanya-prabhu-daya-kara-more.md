@@ -1,5 +1,6 @@
 ---
 page: 62
+first_line: śrī kṛṣṇa chaitanya prabhu dayā kara more
 ---
 
 # Sāvaraṇa-Śrī-Gaura-pāda-padme Prārthanā

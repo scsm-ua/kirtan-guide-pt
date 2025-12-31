@@ -1,5 +1,6 @@
 ---
 page: 43
+first_line: devaṁ divya-tanuṁ suchanda-vadanaṁ bālārka-chelāñchitaṁ
 ---
 
 # Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj

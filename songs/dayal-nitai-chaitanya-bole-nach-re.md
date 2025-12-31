@@ -1,5 +1,6 @@
 ---
 page: 75
+first_line: ‘dayāl nitāi chaitanya’ ba’le
 ---
 
 # Dayāl Nitāi Chaitanya

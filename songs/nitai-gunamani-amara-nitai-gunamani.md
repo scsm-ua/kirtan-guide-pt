@@ -1,5 +1,6 @@
 ---
 page: 72
+first_line: nitāi guṇamaṇi āmāra
 ---
 
 # Nitāi guṇamaṇi āmāra

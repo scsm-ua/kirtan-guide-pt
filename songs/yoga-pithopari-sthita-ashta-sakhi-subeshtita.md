@@ -1,11 +1,11 @@
 ---
 page: 155
+first_line: yoga-pīṭhopari-sthita
 ---
 
 # Śrī Śikṣāṣṭakam
 
 ## Canção 8b
-
 ## (Esta parte geralmente não se canta em voz alta)
 
 ### Śrīla Bhakti Vinod Ṭhākur

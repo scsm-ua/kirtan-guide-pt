@@ -1,5 +1,6 @@
 ---
 page: 118
+first_line: ‘gaurāṅga’ balite habe
 ---
 
 # ‘Gaurāṅga’ bolite habe

@@ -1,5 +1,6 @@
 ---
 page: 113
+first_line: sarvasva tomāra
 ---
 
 # Sarvasva Tomāra

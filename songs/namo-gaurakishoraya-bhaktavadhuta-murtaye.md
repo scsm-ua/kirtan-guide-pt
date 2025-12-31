@@ -1,5 +1,6 @@
 ---
 page: 44
+first_line: namo gaurakiśorāya bhaktāvadhūta mūrtaye
 ---
 
 # Śrīla Gaura Kiśora Dās Bābājī Mahārāj

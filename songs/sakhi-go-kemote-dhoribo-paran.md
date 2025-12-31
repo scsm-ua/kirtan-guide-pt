@@ -1,5 +1,6 @@
 ---
 page: 152
+first_line: (sakhi go) kemate dhariba parāṇa
 ---
 
 # Śrī Śikṣāṣṭakam

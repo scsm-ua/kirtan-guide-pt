@@ -1,5 +1,6 @@
 ---
 page: 42
+first_line: gurv-ābhīṣṭa-supūrakaṁ guru-gaṇair
 ---
 
 # Śrīla Bhakti Sundar Govinda Dev-Goswāmī Mahārāj

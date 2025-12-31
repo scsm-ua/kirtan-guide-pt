@@ -1,5 +1,6 @@
 ---
 page: 128
+first_line: haribolo haribolo haribolo bhāi re
 ---
 
 # Śrī Nāma Kīrtan 3

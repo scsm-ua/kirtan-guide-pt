@@ -1,5 +1,6 @@
 ---
 page: 90
+first_line: gopīnāth, mama nivedana śuna
 ---
 
 # Nivedana

@@ -1,5 +1,6 @@
 ---
 page: 68
+first_line: ṭhākura-vaiṣṇava-pada
 ---
 
 # Ṭhākura-vaiṣṇava-pada

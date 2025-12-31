@@ -1,5 +1,6 @@
 ---
 page: 149
+first_line: gāite gāite nāma ki daśā ha-ila
 ---
 
 # Śrī Śikṣāṣṭakam

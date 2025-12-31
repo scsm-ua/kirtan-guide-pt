@@ -1,5 +1,6 @@
 ---
 page: 25
+first_line: bhaja bhakata-vatsala
 ---
 
 # Śrī Bhoga Ārati Gīti

@@ -1,5 +1,6 @@
 ---
 page: 137
+first_line: tuhu̐ dayā-sāgara tārayite prāṇī
 ---
 
 # Śrī Śikṣāṣṭakam

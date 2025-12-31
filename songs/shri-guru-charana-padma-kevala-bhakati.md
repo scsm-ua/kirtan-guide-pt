@@ -1,5 +1,6 @@
 ---
 page: 61
+first_line: śrī guru charaṇa-padma
 ---
 
 # Śrī Guru-vaiṣṇava Māhātmya-gīti

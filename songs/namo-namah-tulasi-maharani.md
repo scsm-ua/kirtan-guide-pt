@@ -1,5 +1,6 @@
 ---
 page: 39
+first_line: namo namaḥ tulasī mahārāṇī
 ---
 
 # Śrī Tulasī-parikramā-gīti

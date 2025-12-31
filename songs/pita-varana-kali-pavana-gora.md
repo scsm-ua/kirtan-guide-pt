@@ -1,5 +1,6 @@
 ---
 page: 135
+first_line: pīta-varaṇa kali-pāvana gorā
 ---
 
 # Śrī Śikṣāṣṭakam

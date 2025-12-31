@@ -1,5 +1,6 @@
 ---
 page: 87
+first_line: gaurā pahu̐ nā
 ---
 
 # Gaurā Pahu̐

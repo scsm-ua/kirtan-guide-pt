@@ -1,6 +1,7 @@
 ---
 page: 47
 author: Śrīla Rūpa Goswāmī Prabhu
+first_line: jayatāṁ suratau paṅgor
 ---
 
 # Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Madana-Mohanjīu

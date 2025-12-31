@@ -1,6 +1,7 @@
 ---
 page: 48
 author: Śrīla Rūpa Goswāmī Prabhu
+first_line: śrīmān rāsa-rasārambhī
 ---
 
 # Śrī-Śrī-Guru-Gaurāṅga-Rādhā-Gopīnāthjīu

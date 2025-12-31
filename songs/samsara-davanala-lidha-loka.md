@@ -1,5 +1,6 @@
 ---
 page: 51
+first_line: saṁsāra-dāvānala-līḍha-loka
 ---
 
 # Śrī Śrī Gurvāṣṭakam

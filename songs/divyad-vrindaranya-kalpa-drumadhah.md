@@ -1,6 +1,7 @@
 ---
 page: 47
 author: Śrīla Rūpa Goswāmī Prabhu
+first_line: dīvyad-vṛndāraṇya-kalpa-drumādhaḥ
 ---
 
 # Śrī-Śrī-Guru-Gaurāṅga-Gāndharvā-Govindasundarjīu

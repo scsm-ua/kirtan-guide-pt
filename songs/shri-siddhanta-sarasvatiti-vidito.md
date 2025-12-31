@@ -1,5 +1,6 @@
 ---
 page: 44
+first_line: śrī-siddhānta-sarasvatīti vidito
 ---
 
 # Bhagavān Śrīla Bhakti Siddhānta Saraswatī Ṭhākur

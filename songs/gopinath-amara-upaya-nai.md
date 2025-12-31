@@ -1,5 +1,6 @@
 ---
 page: 95
+first_line: gopīnāth, āmāra upāya nāi
 ---
 
 # Nivedana

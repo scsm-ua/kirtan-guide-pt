@@ -1,5 +1,6 @@
 ---
 page: 211
+first_line: śrī hari-vāsare hari-kīrtana-vidhāna
 ---
 
 # Śrī Harivāsar Gīti

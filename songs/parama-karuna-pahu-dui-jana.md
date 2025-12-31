@@ -1,5 +1,6 @@
 ---
 page: 74
+first_line: parama karuṇa
 ---
 
 # Śrī Śrī Gaura-Nityānander Dayā
