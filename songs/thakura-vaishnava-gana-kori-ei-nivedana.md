@@ -40,5 +40,5 @@ Luxúria, raiva, cobiça, ilusão, orgulho e ego me puxam em suas próprias dire
     narottama dāse kaya    dekhi’ śuni’ lage bhaya
         tarāiyā laha nija pāśa
 
-Eu nunca aceitei a concepção apropriada. Minha mente tem estado imersa na ilusão, e eu nunca aspirei aos seus pés. Narottam Dās diz: “Vendo e ouvindo sobre minha situação, estou paralisado de medo. Por favor me resgate e me mante-nha ao seu lado.”
+Eu nunca aceitei a concepção apropriada. Minha mente tem estado imersa na ilusão, e eu nunca aspirei aos seus pés. Narottam Dās diz: “Vendo e ouvindo sobre minha situação, estou paralisado de medo. Por favor me resgate e me mantenha ao seu lado.”
 

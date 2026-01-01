@@ -16,7 +16,7 @@ page: 95
 
 > **gopīnāth**–Ó Gopīnāth **āmāra nāi**–eu não tenho **upāya**–saída. [Apenas se] **tumi**–Você **kṛpā kari’**–misericordiosamente **āmāre**–me **la-ile**–resgatar **pāi**–irei obter **uddhāra**–liberação **saṁsāre**–do mundo material.
 
-Ó Gopīnāth, eu não tenho saída. Apenas se Você misericor-diosamente me resgatar, eu serei liberto do saṁsāra.
+Ó Gopīnāth, eu não tenho saída. Apenas se Você misericordiosamente me resgatar, eu serei liberto do saṁsāra.
 
 #### 2
 
@@ -56,7 +56,7 @@ page: 95
 
 > **gopīnāth**–Ó Gopīnāth, **kemane**–como **ha-ibe**–haverá **gati**–progresso? [Minha] **mana**–mente **vaśī-bhūta**–controlada [pelos] **prabala**–poderosos **indriya**–sentidos **chhāḍe nā**–não abandona [seu] **rati**–apego **viṣaya**–ao mundano.
 
-Ó Gopīnāth, como vou progredir? Minha mente, contro-lada pelos poderosos sentidos, não desiste de seu apego ao mundano.
+Ó Gopīnāth, como vou progredir? Minha mente, controlada pelos poderosos sentidos, não desiste de seu apego ao mundano.
 
 #### 6
 
@@ -66,7 +66,7 @@ page: 95
 
 > **gopīnāth**–Ó Gopīnāth, [por favor] **vasiyā**–sente-se [em] **mora**–meu **hṛdaye**–coração, **śamiyā**–subjugue [minha] **manake**–mente [e] **laha**–leve-me **nija**–em Sua **pāne**–direção. **ghuchibe**–Você precisa dissipar [todo] **vipada**–perigo [e] **ghora**–escuridão.
 
-Ó Gopīnāth, por favor, sente-se em meu coração, subju-gue minha mente, e me leve para Ti. Dissipe todo o perigo e escuridão.
+Ó Gopīnāth, por favor, sente-se em meu coração, subjugue minha mente, e me leve para Ti. Dissipe todo o perigo e escuridão.
 
 #### 7
 
@@ -76,7 +76,7 @@ page: 95
 
 > **gopīnāth**–Ó Gopīnāth, **tumi**–Você [é] **hṛṣīka-īśa**–o Senhor dos sentidos. **dekhiyā**–Vendo **more**–me **anātha**–desamparado **damiyā**–subjugue [meus] **hṛṣīka**–sentidos [e] **he**–oh! **tāra’**–liberte [me] **ghore**–da escuridão **saṁsṛti**–do mundo material.
 
-Ó Gopīnāth, Você é o Senhor dos sentidos. Vendo me desam-parado, subjugue meus sentidos e me liberte da escuridão do saṁsāra.
+Ó Gopīnāth, Você é o Senhor dos sentidos. Vendo me desamparado, subjugue meus sentidos e me liberte da escuridão do saṁsāra.
 
 #### 8
 

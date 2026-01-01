@@ -38,7 +38,7 @@ page: 33
 
 > **kabe**–Quando? **e**–esta **jana**–pessoa **labhiyā**–alcançará **hena**–tal **kṛpā**–misericórdia [e] **ha-ibe**–será **kṛtārtha**–realizada? **nātha!**–Ó mestre! [estou] **hīna**–desprovido [de] **śakti**–força [e] **buddhi**–inteligência **āmi**–eu [estou] **ati**–muito **dīna**–angustiado **kara’**–por favor permita **more**–a mim **ātma**–estar [em Sua] **sātha**–companhia.
 
-Quando esta alma alcançará tal misericórdia e ficará reali-zada? Ó mestre! Estou desprovido de capacidade e inteligên-cia, e muito aflito. Me aceite por favor.
+Quando esta alma alcançará tal misericórdia e ficará realizada? Ó mestre! Estou desprovido de capacidade e inteligência, e muito aflito. Me aceite por favor.
 
 #### 4
 

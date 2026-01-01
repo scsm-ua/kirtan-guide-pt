@@ -46,14 +46,14 @@ Sua forma é adornada com tilak, contas de tulasī, pasta de sândalo, roupas a�
     apūrva śrī-aṅga-śobhā kare jhalamala
     audārya-unnata-bhāva mādhurya-ujjvala
 
-A extraordinária beleza de sua forma divina brilha com a ale-gria exaltada da benevolência, o esplendor da doçura divina.
+A extraordinária beleza de sua forma divina brilha com a alegria exaltada da benevolência, o esplendor da doçura divina.
 
 #### 7
 
     achintya pratibhā, snigdha, gambhīra, udāra
     jaḍa-jñāna-giri-vajra divya-dīkṣādhāra
 
-Você é dotado de inconcebíveis gênio, afeição, gravidade, e magnanimidade. Você é um raio sobre a montanha do conhe-cimento mundano, e o canal da revelação divina.
+Você é dotado de inconcebíveis gênio, afeição, gravidade, e magnanimidade. Você é um raio sobre a montanha do conhecimento mundano, e o canal da revelação divina.
 
 #### 8
 
@@ -67,7 +67,7 @@ Você é a morada da alegria da dança do saṅkīrtan de Śrī Gaurāṅga, e v
     sāṅgopāṅge gaura-dhāme nitya-parakāśa
     gupta-govardhane divya-līlāra-vilāsa
 
-Seus Passatempos divinos, que acontecem com os seus asso-ciados, na Oculta Colina de Govardhan na morada de Śrī Gaurāṅga, são manifestos eternamente.
+Seus Passatempos divinos, que acontecem com os seus associados, na Oculta Colina de Govardhan na morada de Śrī Gaurāṅga, são manifestos eternamente.
 
 #### 10
 

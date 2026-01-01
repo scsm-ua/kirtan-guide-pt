@@ -71,7 +71,7 @@ Deixe-me ter amor pelos Seus pés assim como eu atualmente amo as coisas materia
 
 > **vipade**–No infortúnio [e] **sampade**–na boa fortuna, [deixe] **tāhā**–que [este amor] **thākuk**–permaneça **samabhāve**–o mesmo, [e] **dine**–dia **dine**–após dia **hauk**–deixe-o **vṛddhi**–crescer **prabhāve**–pela influência **nāmera**–de [Seu] Nome.
 
-No infortúnio e na boa fortuna, deixe que este amor perma-neça o mesmo, e dia após dia, deixe-o crescer pela influência de Seu Nome.
+No infortúnio e na boa fortuna, deixe que este amor permaneça o mesmo, e dia após dia, deixe-o crescer pela influência de Seu Nome.
 
 #### 7
 

@@ -42,7 +42,7 @@ Abandone seu falso ego, e sempre se considere mais baixo que uma folha de grama,
 
 > **sādhana karabi**–Pratique **guṇa**–a qualidade **kṣamā**–da tolerância **sama**–como **vṛkṣa**–uma árvore. **tyaji’**–Abandone [a] **pratihiṁsā**–vingança, [e] **pālana karabi**–nutra [os] **anye**–outros.
 
-Pratique a tolerância como uma árvore. Abandone a retalia-ção e nutra os outros.
+Pratique a tolerância como uma árvore. Abandone a retaliação e nutra os outros.
 
 #### 4
 
@@ -60,7 +60,7 @@ Não perturbe os outros em troca de sua manutenção, e esqueça a sua própria 
 
 > **ha-ileo**–Mesmo que você seja **mahāśaya**–honrável [e] **guṇī**–qualificado [com] **sarva**–todas [as] **guṇe**–qualidades, **chhāḍi’**–abandone [o] **āśā**–desejo **pratiṣṭhā**–por prestígio [e] **kara**–faça [seu] **hṛdaya**–coração **amānī**–sem orgulho.
 
-Mesmo que você seja honrável e qualificado com todas as qualidades, abandone o desejo por prestígio e torne seu cora-ção sem orgulho.
+Mesmo que você seja honrável e qualificado com todas as qualidades, abandone o desejo por prestígio e torne seu coração sem orgulho.
 
 #### 6
 

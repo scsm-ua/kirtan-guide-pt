@@ -13,7 +13,7 @@ page: 61
     yā̐hāra prasāde bhāi    e bhava tariyā yāi
         kṛṣṇa-prāpti haya yā̐hā haite
 
-Ofereço cuidadosamente minha reverência aos pés de lótus de Śrī Guru, que são a única morada da devoção. Ó irmão! Pela misericórdia dele, nós atravessamos este mundo e alcan-çamos Kṛṣṇa.
+Ofereço cuidadosamente minha reverência aos pés de lótus de Śrī Guru, que são a única morada da devoção. Ó irmão! Pela misericórdia dele, nós atravessamos este mundo e alcançamos Kṛṣṇa.
 
 #### 2
 
@@ -49,5 +49,5 @@ Aquele que me deu o dom da visão é meu senhor, nascimento após nascimento. El
     (adhama patita jene    dayā kara he)
     (jay gurudev)
 
-Eu me abriguei. Tomei abrigo em seus pés de lótus, onde não há medo. Por favor, tenha misericórdia de mim. Ó Śrī Gurudev, purificador dos caídos, por favor, tenha misericór-dia de mim. Compreendendo que sou humilde e caído, tenha misericórdia de mim. Toda glória a você, Śrī Gurudev!
+Eu me abriguei. Tomei abrigo em seus pés de lótus, onde não há medo. Por favor, tenha misericórdia de mim. Ó Śrī Gurudev, purificador dos caídos, por favor, tenha misericórdia de mim. Compreendendo que sou humilde e caído, tenha misericórdia de mim. Toda glória a você, Śrī Gurudev!
 

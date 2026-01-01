@@ -25,7 +25,7 @@ Eu me esforcei por coisas inúteis e rejeitei a real riqueza. Eu me afoguei em m
     sat-saṅga chhāḍi’ kainu asate vilāsa
     te-kāraṇe lāgila ye karma-bandha-phā̐sa
 
-Eu evitei a associação dos sādhus e desfrutei com pessoas per-versas. Então fiquei preso no nó do meu karma.
+Eu evitei a associação dos sādhus e desfrutei com pessoas perversas. Então fiquei preso no nó do meu karma.
 
 #### 4
 

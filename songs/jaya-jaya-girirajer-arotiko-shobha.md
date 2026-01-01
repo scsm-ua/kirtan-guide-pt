@@ -22,7 +22,7 @@ Glória! Glória ao belo ārati de Śrī Girirāj! No coração da divina terra 
 
 > **ramaṇa**–[O] amado **śrī-rādhā**–[de] Śrī Rādhā **kare**–[se] engaja **laye**–com **sakhī-gaṇa**–as amigas de Śrī Rādhā [em] **līlā**–brincadeiras **nitya**–diárias **pramoda**–de alegria [e] **madana**–aventuras amorosas **yathā**–neste lugar [sobre você].
 
-O Amado de Śrī Rādhā se envolve com as sakhīs nas brinca-deiras diárias de alegria e aventuras amorosas—sobre você.
+O Amado de Śrī Rādhā se envolve com as sakhīs nas brincadeiras diárias de alegria e aventuras amorosas—sobre você.
 
 #### 3
 
@@ -43,7 +43,7 @@ A brincadeira nos caramanchões ocultos entre suas cavernas, arbustos de mālat�
 
 > **śyāma-kuṇḍa**–Śyāma Kuṇḍa **rādhā-kuṇḍa**–Rādhā Kuṇḍa **kusuma-sarovara**–Kusum Sarovar **mānasa-gaṅgā**–Mānasa Gaṅgā **dāna-ghāṭī**–Dāna Ghāṭī **śrī-govinda-kuṇḍa**–Śrī Govinda Kuṇḍa **nāhi**–não há **sīmā**–fim **sthalī**–dos lugares [onde o Senhor] **līlā**–brinca **abhyantara**–dentro **yāra**–deles, [e] **divā**–dia [e] **niśi**–noite **bhakta-vṛnda**–os devotos **parikramā kare**–circundam [você].
 
-Śyāma Kuṇḍa, Rādhā Kuṇḍa, Kusum Sarovar, Mānasa Gaṅgā, Dāna Ghāṭī, Śrī Govinda Kuṇḍa—há infinitos luga-res onde o Senhor brinca sobre você, e dia e noite, os devotos a circundam.
+Śyāma Kuṇḍa, Rādhā Kuṇḍa, Kusum Sarovar, Mānasa Gaṅgā, Dāna Ghāṭī, Śrī Govinda Kuṇḍa—há infinitos lugares onde o Senhor brinca sobre você, e dia e noite, os devotos a circundam.
 
 #### 6
 
@@ -70,7 +70,7 @@ O Śrīla Śrīdhar Swāmī Sevā Ashram, onde os seguidores de Śrīla Saraswat
 
 > [Se] **smariyā**–lembrando [de] **śrī-raghunātha-dāsere gosvāmī**–Śrīla Raghunāth Dās Goswāmī, [os seguidores de Śrīla Saraswatī Ṭhākur] **nirantara**–continuamente **kare**–executam [seus] **sevā**–serviços **antarmanā haiyā**–meditativamente.
 
-Se lembrando de Śrī Raghunāth Dās Goswāmī, os seguidores de Śrīla Saraswatī Ṭhākur continuamente executam seus ser-viços meditativamente.
+Se lembrando de Śrī Raghunāth Dās Goswāmī, os seguidores de Śrīla Saraswatī Ṭhākur continuamente executam seus serviços meditativamente.
 
 #### 9
 
@@ -97,5 +97,5 @@ O Senhor Indra, Nārad Muni, O Senhor Śiva, Śukadev Goswāmī, e outras grande
 
 > [Você é] **nitya**–eternamente **parakāśa**–manifesta [como] **sevya**–o Senhor (Ele que é para ser servido) **o**–e **rūpe**–como **sevaka**–servo, [e] **sānande**–com alegria **e**–este **dāsa**–servo **adhama**–caído **dekhe**–observa [seu] **ārati**–ārati.
 
-Você é eternamente manifesta como Senhor e servo, e com ale-gria este servo caído observa seu ārati.
+Você é eternamente manifesta como Senhor e servo, e com alegria este servo caído observa seu ārati.
 

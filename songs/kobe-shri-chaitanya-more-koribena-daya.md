@@ -46,7 +46,7 @@ Ouvindo meu sofrimento, o adorável Vaiṣṇava irá orar a Kṛṣṇa em meu 
     vaiṣṇavera āvedane kṛṣṇa dayāmaya
     e hena pāmara prati habena sadaya
 
-Satisfeito com a oração do Vaiṣṇava, Kṛṣṇa será misericor-dioso com este pecador.
+Satisfeito com a oração do Vaiṣṇava, Kṛṣṇa será misericordioso com este pecador.
 
 #### 7
 

@@ -16,7 +16,7 @@ page: 92
 
 > **gopīnāth**–Ó Gopīnāth, **ghuchāo**–por favor alivie **jvālā**–a dor ardente **saṁsāra**–do mundo material. **sahe nāhi**–Eu não posso tolerar **yātanā**–a dor **avidyā**–da ignorância [ou] **mālā**–o ciclo **janama**–de nascimento [e] **maraṇa**–morte [não] **āra**–mais.
 
-Ó Gopīnāth, por favor alivie a dor abrasante do saṁsāra. Eu não posso mais tolerar a dor da ignorância ou o ciclo de nas-cimento e morte.
+Ó Gopīnāth, por favor alivie a dor abrasante do saṁsāra. Eu não posso mais tolerar a dor da ignorância ou o ciclo de nascimento e morte.
 
 #### 2
 

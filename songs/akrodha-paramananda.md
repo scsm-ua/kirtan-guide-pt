@@ -44,5 +44,5 @@ Lochan Dās diz daquele que não desenvolveu apego a esse Avatār: “Tal pecado
     (yāoyā āsā sār ha-ila)
     (nitāi-charaṇ nā bhajila yāoyā āsā sār ha-ila)
 
-“Eles simplesmente vieram e se foram. Aqueles que não ser-viram os pés de Nitāi simplesmente vieram e se foram (nasce-ram e morreram inutilmente).”
+“Eles simplesmente vieram e se foram. Aqueles que não serviram os pés de Nitāi simplesmente vieram e se foram (nasceram e morreram inutilmente).”
 

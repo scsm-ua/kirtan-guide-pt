@@ -22,7 +22,7 @@ page: 58
     pūtanā-ghātana    kaiṭabha-śātana jaya
         dāśarathi-rāma
 
-Toda glória a Kṛṣṇa! Ele aparece como Nṛsiṁhadev, o Avatār meio-homem meio-leão,n o Avatār anão, Vāman, e o filho de Daśarath, Rāmachandra. Ele é o destruidor dos demônios Madhu, Pūtanā e Kaiṭabha. Ele é o filho do Rei de Vraja e sua cor é negra.
+Toda glória a Kṛṣṇa! Ele aparece como Nṛsiṁhadev, o Avatār meio-homem meio-leão, o Avatār anão, Vāman, e o filho de Daśarath, Rāmachandra. Ele é o destruidor dos demônios Madhu, Pūtanā e Kaiṭabha. Ele é o filho do Rei de Vraja e sua cor é negra.
 
 #### 3
 
@@ -58,7 +58,7 @@ O filho de Nanda Mahārāj, Kṛṣṇa, é adorado pelos maiores yogīs. Ele é
     kadamba-kānana    rāsa-parāyaṇa
         vṛndā-vipina-nivāsī
 
-O filho de Yaśodā, Kṛṣṇa, é o assassino de Kaṁsa e o desfruta-dor da Dança Rāsa na floresta. Ele reside em Vṛndāvan e rea-liza a Dança Rāsa sob as árvores kadamba.
+O filho de Yaśodā, Kṛṣṇa, é o assassino de Kaṁsa e o desfrutador da Dança Rāsa na floresta. Ele reside em Vṛndāvan e realiza a Dança Rāsa sob as árvores kadamba.
 
 #### 7
 

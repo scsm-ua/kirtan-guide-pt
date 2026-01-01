@@ -61,7 +61,7 @@ Purīs doces, purīs recheados com creme, docinhos redondos, pasteizinhos de dā
     rādhikāra pakka anna vividha vyañjana
     parama ānande kṛṣṇa karena bhojana
 
-Com grande alegria Kṛṣṇa come várias preparações de vege-tais feitas por Rādhikā.
+Com grande alegria Kṛṣṇa come várias preparações de vegetais feitas por Rādhikā.
 
 #### 9
 

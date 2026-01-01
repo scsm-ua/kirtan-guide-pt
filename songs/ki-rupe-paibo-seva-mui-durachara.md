@@ -32,12 +32,12 @@ Imerso no mundano dia e noite, eu me esqueci de você e fiquei cego. A bruxa Mā
     māyāre kariyā jaya chhāḍāna nā yāya
     sādhu-kṛpā vinā āra nāhika upāya
 
-É impossível superar e deixar Māyā para trás sem a misericór-dia dos sādhus. Não há outra maneira.
+É impossível superar e deixar Māyā para trás sem a misericórdia dos sādhus. Não há outra maneira.
 
 #### 5
 
     adoṣa-daraśi-prabhu patita-uddhāra
     ei-bāra narottame karaha nistāra
 
-Ó mestre que não considera minhas faltas! Ó salvador dos caí-dos! Desta vez liberte Narottam Dās.
+Ó mestre que não considera minhas faltas! Ó salvador dos caídos! Desta vez liberte Narottam Dās.
 

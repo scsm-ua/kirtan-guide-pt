@@ -18,7 +18,7 @@ Nitāi, a joia de todas as boas qualidades, meu Nitāi, a joia de todas as boas 
     prema-vanyā laye nitāi āila gauḍa-deśe
     ḍubila bhakata-gaṇa dīna-hīna bhāse
 
-Nitāi trouxe uma inundação de amor divino para a terra de Gauḍa. Os devotos mergulharam nela, mas os desafortuna-dos boiaram em sua superfície.
+Nitāi trouxe uma inundação de amor divino para a terra de Gauḍa. Os devotos mergulharam nela, mas os desafortunados boiaram em sua superfície.
 
 #### 3
 
@@ -39,5 +39,5 @@ Nitāi abriu um canal no mar fechado da misericórdia e uma correnteza de amor d
     lochan bale hena nitāi yebā na bhajila
     jāniyā śuniyā sei atma-ghātī haila
 
-Lochan Dās diz: “Qualquer um que não serviu Nitāi reconhe-cidamente cometeu suicídio.”
+Lochan Dās diz: “Qualquer um que não serviu Nitāi reconhecidamente cometeu suicídio.”
 

@@ -13,7 +13,7 @@ page: 81
     kadamba keśara    jini ekaṭī pulaka re!
         tāra mājhe bindu bindu ghāma
 
-Sua forma incomparável supera o ouro puro! Ele é decorado com uma guirlanda de flores variadas. Seus pelos eretos supe-ram os filamentos da kadamba! Ele é coberto de gotas de suor.
+Sua forma incomparável supera o ouro puro! Ele é decorado com uma guirlanda de flores variadas. Seus pelos eretos superam os filamentos da kadamba! Ele é coberto de gotas de suor.
 
 #### 2
 
@@ -22,7 +22,7 @@ Sua forma incomparável supera o ouro puro! Ele é decorado com uma guirlanda de
     aruṇa-vasana chhavi    jini prabhātera ravi
         gorā-aṅge laharī khelāya
 
-Seus movimentos lentos superam os de um elefante embria-gado. Arrebatado em êxtase, Ele cambaleia. O esplendor de suas vestes cor de açafrão supera o sol da manhã. Ondas vibrantes atravessam sua forma dourada.
+Seus movimentos lentos superam os de um elefante embriagado. Arrebatado em êxtase, Ele cambaleia. O esplendor de suas vestes cor de açafrão supera o sol da manhã. Ondas vibrantes atravessam sua forma dourada.
 
 #### 3
 
