@@ -1,5 +1,6 @@
 ---
 page: 77
+first_line: gaurāṅgera duṭi pada
 ---
 
 # Sāvaraṇa-Śrī-Gaura-mahimā

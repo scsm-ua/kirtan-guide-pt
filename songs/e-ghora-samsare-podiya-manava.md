@@ -1,5 +1,6 @@
 ---
 page: 127
+first_line: e ghora-saṁsāre
 ---
 
 # E ghora saṁsāre

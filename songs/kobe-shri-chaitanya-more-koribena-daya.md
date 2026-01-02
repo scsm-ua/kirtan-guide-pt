@@ -1,5 +1,6 @@
 ---
 page: 38
+first_line: kabe śrī chaitanya more karibena dayā
 ---
 
 # Dainya Prārthanā Gīti

@@ -1,5 +1,6 @@
 ---
 page: 45
+first_line: vande bhaktivinodaṁ śrī-gaura-śakti-svarūpakam
 ---
 
 # Śrīla Bhakti Vinod Ṭhākur

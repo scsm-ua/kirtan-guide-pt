@@ -1,5 +1,6 @@
 ---
 page: 88
+first_line: yadi, gaura nā ha’ta
 ---
 
 # Yadi, gaura nā ha’ta

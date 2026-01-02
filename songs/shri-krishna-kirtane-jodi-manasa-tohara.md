@@ -1,5 +1,6 @@
 ---
 page: 139
+first_line: śrī-kṛṣṇa-kīrtane yadi mānasa tohāra
 ---
 
 # Śrī Śikṣāṣṭakam

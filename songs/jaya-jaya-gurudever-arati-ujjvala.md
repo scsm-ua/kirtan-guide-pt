@@ -1,5 +1,6 @@
 ---
 page: 10
+first_line: jaya jaya gurudever
 ---
 
 # Śrī Guru Ārati

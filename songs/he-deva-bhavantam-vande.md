@@ -1,5 +1,6 @@
 ---
 page: 103
+first_line: he deva bhavantaṁ vande
 ---
 
 # He deva bhavantaṁ vande

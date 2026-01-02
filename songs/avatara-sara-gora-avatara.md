@@ -1,5 +1,6 @@
 ---
 page: 85
+first_line: avatāra sāra
 ---
 
 # Avatāra Sāra

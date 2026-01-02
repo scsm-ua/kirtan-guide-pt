@@ -1,5 +1,6 @@
 ---
 page: 15
+first_line: jaya jaya girirājer ārati viśāla
 ---
 
 # Śrī Govinda Kuṇḍa Govardhan Ārati

@@ -1,5 +1,6 @@
 ---
 page: 129
+first_line: hari-nāma mahāmantra sarva-mantra-sāra
 ---
 
 # Daśa-vidha Nāmāparādha

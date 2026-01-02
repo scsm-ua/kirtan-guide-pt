@@ -1,5 +1,6 @@
 ---
 page: 104
+first_line: janama saphala tā’ra
 ---
 
 # Rūpa-Kīrtan

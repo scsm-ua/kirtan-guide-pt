@@ -1,5 +1,6 @@
 ---
 page: 133
+first_line: prabhu kahe—kahilāṅ ei mahāmantra
 ---
 
 # Hare Kṛṣṇa mahāmantra

@@ -1,5 +1,6 @@
 ---
 page: 169
+first_line: sūtra-vṛtti-ṭippanīṣṭa-sūkṣma-vāchanādbhutaṁ
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

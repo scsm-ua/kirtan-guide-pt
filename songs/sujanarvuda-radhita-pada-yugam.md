@@ -1,5 +1,6 @@
 ---
 page: 159
+first_line: sujanārvuda-rādhita-pāda-yugaṁ
 ---
 
 # Śrī Śrī Prabhupāda-padma Stavakaḥ

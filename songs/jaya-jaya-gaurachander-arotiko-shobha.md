@@ -1,5 +1,6 @@
 ---
 page: 28
+first_line: (kibā) jaya jaya gorāchā̐der
 ---
 
 # Śrī Gaura Ārati
@@ -8,7 +9,7 @@ page: 28
 
 #### 1
 
-    (kibā) jaya jaya gorāchā̐der āratika śobhā 
+    (kibā) jaya jaya gorāchā̐der āratika śobhā
     jāhnavī-taṭa-vane jaga-mana lobhā
         (jaga-janer mana lobhā)
         (gaurāṅger ārati śobhā jaga-janer mana lobhā)

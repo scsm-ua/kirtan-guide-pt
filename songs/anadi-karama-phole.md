@@ -1,5 +1,6 @@
 ---
 page: 144
+first_line: anādi karama-phale
 ---
 
 # Śrī Śikṣāṣṭakam

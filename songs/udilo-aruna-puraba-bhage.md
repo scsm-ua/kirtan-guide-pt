@@ -1,5 +1,6 @@
 ---
 page: 34
+first_line: udila aruṇa pūrava-bhāge
 ---
 
 # Aruṇodoya-kīrtan

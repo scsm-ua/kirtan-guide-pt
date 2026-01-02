@@ -1,5 +1,6 @@
 ---
 page: 98
+first_line: mānasa, deha, geha
 ---
 
 # Mānasa Deho Geho

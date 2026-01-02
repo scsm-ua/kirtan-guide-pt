@@ -1,5 +1,6 @@
 ---
 page: 218
+first_line: namāmīśvaraṁ sachchidānanda-rūpaṁ
 ---
 
 # Śrī Śrī Dāmodarāṣtakam

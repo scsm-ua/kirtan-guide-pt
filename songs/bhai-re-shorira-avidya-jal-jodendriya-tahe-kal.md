@@ -1,5 +1,6 @@
 ---
 page: 230
+first_line: bhāi re! śarīra avidyā-jāla jaḍendriya tāhe kāla
 ---
 
 # Śrī Prasāda-sevāya Gīti

@@ -1,5 +1,7 @@
 ---
 page: 50
+first_line: jayaḥ sa-parikara śrī-śrī-guru-gaurāṅgasundar
+no-author: 1
 ---
 
 # Śrī Guru, Śrī Gaurasundar, Śrī Śrī Rādhā–Madan Gopāl

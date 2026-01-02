@@ -1,5 +1,6 @@
 ---
 page: 82
+first_line: emana gaurāṅga vine nāhi āra
 ---
 
 # Emona Gaurāṅga bine nāhi āra

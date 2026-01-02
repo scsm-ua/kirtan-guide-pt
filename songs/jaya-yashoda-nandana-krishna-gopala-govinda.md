@@ -1,5 +1,6 @@
 ---
 page: 102
+first_line: (jaya) yaśodā-nandana kṛṣṇa
 ---
 
 # Jaya Yaśodā-Nandana Kṛṣṇa

@@ -1,5 +1,6 @@
 ---
 page: 106
+first_line: jaya rādhe, jaya kṛṣṇa
 ---
 
 # Śrī Vraja-dhāma-mahimāmṛta

@@ -1,5 +1,6 @@
 ---
 page: 58
+first_line: vibhāvarī śeṣa
 ---
 
 # Vibhāvarī Śeṣa

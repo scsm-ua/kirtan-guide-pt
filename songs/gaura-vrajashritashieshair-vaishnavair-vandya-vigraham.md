@@ -1,5 +1,6 @@
 ---
 page: 45
+first_line: gaura-vrajāśritāśeṣair vaiṣṇavair vandya-vigraham
 ---
 
 # Śrīla Jagannāth Dās Bābājī Mahārāj

@@ -1,5 +1,6 @@
 ---
 page: 118
+first_line: kabe ha’be bala se-dina āmāra
 ---
 
 # Kabe ha’be bala

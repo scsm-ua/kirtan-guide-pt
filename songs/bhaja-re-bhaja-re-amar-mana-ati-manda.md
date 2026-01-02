@@ -1,5 +1,6 @@
 ---
 page: 57
+first_line: bhaja re bhaja re āmār
 ---
 
 # Bhajan-gīti

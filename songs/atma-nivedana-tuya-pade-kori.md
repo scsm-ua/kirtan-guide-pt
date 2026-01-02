@@ -1,5 +1,6 @@
 ---
 page: 115
+first_line: ātma-nivedana
 ---
 
 # Ātma-nivedana

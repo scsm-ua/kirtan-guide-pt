@@ -1,5 +1,6 @@
 ---
 page: 214
+first_line: śuddha-bhakata-charaṇa-reṇu
 ---
 
 # Śuddha-bhakata

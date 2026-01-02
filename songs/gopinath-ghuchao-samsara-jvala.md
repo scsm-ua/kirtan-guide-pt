@@ -1,5 +1,6 @@
 ---
 page: 92
+first_line: gopīnāth, ghuchāo saṁsāra-jvālā
 ---
 
 # Nivedana

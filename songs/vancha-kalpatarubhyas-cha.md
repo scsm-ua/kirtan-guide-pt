@@ -1,6 +1,7 @@
 ---
 page: 46
 author: Śrīla Rūpa Goswāmī Prabhu
+first_line: vāñchhā-kalpa-tarubhyaś cha
 ---
 
 # vāñchhā-kalpa-tarubhyaś cha
@@ -39,3 +40,4 @@ Ofereço minha reverência à manifestação de Śrī Kṛṣṇa em cinco aspec
 Repetidamente ofereço minha reverência a Você, o supremamente misericordioso doador de Kṛṣṇa-prema, Kṛṣṇa Ele mesmo em brilho dourado conhecido como Śrī Kṛṣṇa Chaitanya.
 
 *(Śrīla Rūpa Goswāmī Prabhu)*
+

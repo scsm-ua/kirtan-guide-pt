@@ -1,5 +1,6 @@
 ---
 page: 73
+first_line: akrodha paramānanda
 ---
 
 # Akrodha paramānanda

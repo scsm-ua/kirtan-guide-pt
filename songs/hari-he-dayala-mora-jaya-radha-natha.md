@@ -1,6 +1,7 @@
 ---
 page: 98
 author: Śrīla Bhakti Vinod Ṭhākur
+first_line: hari he dayāla mora
 ---
 
 # Dainya O Prapatti

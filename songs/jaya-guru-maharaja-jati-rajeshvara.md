@@ -1,5 +1,6 @@
 ---
 page: 12
+first_line: jaya ‘guru-mahārāja’
 ---
 
 # Śrī Guru Ārati Stuti

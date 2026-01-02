@@ -1,5 +1,6 @@
 ---
 page: 64
+first_line: (ohe) vaiṣṇava ṭhākura
 ---
 
 # Śrī Vaiṣṇava-mahimā-gīti

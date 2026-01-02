@@ -1,5 +1,6 @@
 ---
 page: 48
+first_line: namaḥ om viṣṇupādāya kṛṣṇa
 ---
 
 # Praṇām Mantra to Śrīla A.C Bhaktivedānta Swāmī Mahārāj Prabhupād

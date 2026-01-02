@@ -1,5 +1,6 @@
 ---
 page: 80
+first_line: gāya gorā madhur svare
 ---
 
 # Śrī Nāma

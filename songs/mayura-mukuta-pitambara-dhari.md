@@ -1,5 +1,6 @@
 ---
 page: 102
+first_line: mayūra-mukuṭa-pītāmbara-dhārī
 ---
 
 # Mayūra Mukuṭa

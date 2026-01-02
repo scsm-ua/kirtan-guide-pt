@@ -1,5 +1,6 @@
 ---
 page: 55
+first_line: śrī-kṛṣṇa-chaitanya prabhu jīve dayā kari
 ---
 
 # Invocação Auspiciosa a Śaraṇāgati

@@ -1,5 +1,6 @@
 ---
 page: 110
+first_line: hari hari! viphale janama goṅāinu
 ---
 
 # Iṣṭa-deve Vijñapti

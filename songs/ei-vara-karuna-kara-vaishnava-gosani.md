@@ -1,5 +1,6 @@
 ---
 page: 69
+first_line: ei-bāra karuṇā kara
 ---
 
 # Vaiṣṇava Vijñāpti

@@ -1,5 +1,6 @@
 ---
 page: 217
+first_line: rādhe jaya jaya mādhava-dayite
 ---
 
 # Śrī Rādhikā-stava

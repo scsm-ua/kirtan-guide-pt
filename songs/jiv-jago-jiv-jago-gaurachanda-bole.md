@@ -1,5 +1,6 @@
 ---
 page: 36
+first_line: jīva jāga, jīva jāga
 ---
 
 # Aruṇodoya-kīrtan

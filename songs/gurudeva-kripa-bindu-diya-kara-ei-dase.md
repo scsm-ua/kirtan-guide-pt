@@ -1,5 +1,6 @@
 ---
 page: 33
+first_line: gurudeva! kṛpā-bindu diyā
 ---
 
 # Gurudeva

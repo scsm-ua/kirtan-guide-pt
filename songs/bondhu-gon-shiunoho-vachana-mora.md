@@ -1,5 +1,6 @@
 ---
 page: 153
+first_line: (bandhu-gaṇa) śunaha vachana
 ---
 
 # Śrī Śikṣāṣṭakam

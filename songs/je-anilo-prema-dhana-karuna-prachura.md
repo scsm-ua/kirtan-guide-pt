@@ -1,5 +1,6 @@
 ---
 page: 207
+first_line: ye ānila prema-dhana
 ---
 
 # Viraha-gīti

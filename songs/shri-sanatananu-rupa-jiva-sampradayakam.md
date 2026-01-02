@@ -1,5 +1,6 @@
 ---
 page: 193
+first_line: śrī sanātanānurūpa-jīva-sampradāyakaṁ
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

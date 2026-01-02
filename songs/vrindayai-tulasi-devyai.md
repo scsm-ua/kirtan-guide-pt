@@ -1,6 +1,7 @@
 ---
 page: 48
 no-author: 1
+first_line: vṛndāyai tulasī-devyai
 ---
 
 # vṛndāyai tulasī-devyai

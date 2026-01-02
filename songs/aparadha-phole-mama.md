@@ -1,5 +1,6 @@
 ---
 page: 146
+first_line: aparādha-phale mama
 ---
 
 # Śrī Śikṣāṣṭakam

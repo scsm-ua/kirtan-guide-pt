@@ -1,5 +1,6 @@
 ---
 page: 66
+first_line: ṭhākura vaiṣṇava-gaṇa
 ---
 
 # Ṭhākura-vaiṣṇava-gaṇa
