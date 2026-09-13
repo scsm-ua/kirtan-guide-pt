@@ -50,7 +50,7 @@ Eu não gosto mais deste mundo. Onde posso ir para ver Kṛṣṇa? Esta se torn
     kā̐dite kā̐dite mora ā̐khi variṣaya
     varṣā-dhārā hena chakṣe ha-ila udaya
 
-> **kā̐dite**–Chorando [e] **kā̐dite**–chorando **mora**–meus **ā̐khi**–olhos **variṣaya**–derramaram lágrimas. **hena**–Tais **dhārā**–torrentes **varṣā**–de chuva **udaya****ha-ila**–surgiram **chakṣe**–dos [meus] olhos.
+> **kā̐dite**–Chorando [e] **kā̐dite**–chorando **mora**–meus **ā̐khi**–olhos **variṣaya**–derramaram lágrimas. **hena**–Tais **dhārā**–torrentes **varṣā**–de chuva **udaya** **ha-ila**–surgiram **chakṣe**–dos [meus] olhos.
 
 Enquanto eu chorava, meus olhos derramaram lágrimas. Torrentes de chuva caem dos meus olhos.
 

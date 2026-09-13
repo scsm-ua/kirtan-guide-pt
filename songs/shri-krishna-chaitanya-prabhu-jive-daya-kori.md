@@ -48,7 +48,7 @@ Engajar-se apenas em atividades que são favoráveis à devoção, rejeitando tu
     ṣaḍ-aṅga śaraṇāgati ha-ibe yā̐hāra
     ta̐hāra prārthanā śune śrī-nanda-kumāra
 
-> **śrī-nanda-kumāra**–Kṛṣṇa, o filho de Nanda Mahārāj **śune**–escuta **tā̐hāra**–suas **prārthanā**–orações **yā̐hāra**–de quem **ha-ibe**–será [a] **śaraṇāgati****(prapatti)**–rendição [destas] **ṣaḍ**–seis **aṅga (prakāra aṅgera dvārā)**–maneiras (por meio delas).
+> **śrī-nanda-kumāra**–Kṛṣṇa, o filho de Nanda Mahārāj **śune**–escuta **tā̐hāra**–suas **prārthanā**–orações **yā̐hāra**–de quem **ha-ibe**–será [a] **śaraṇāgati** **(prapatti)**–rendição [destas] **ṣaḍ**–seis **aṅga (prakāra aṅgera dvārā)**–maneiras (por meio delas).
 
 Śrī Kṛṣṇa ouve as orações de quem se rende destas seis maneiras.
 

@@ -57,7 +57,7 @@ Mas quando eu fixo os olhos para vê-Lo mais claramente, Ele desaparece. Novamen
     punaḥ adarśana diyā dagdha kare mora hiyā
     prāṇe more māre prāṇa-dhana
 
-> **dāne**–Por [me] dar **ānanda**–o êxtase **darśana**–do encontro [com Ele e] **bale**–por dizer **vachana**–palavras **praṇaya**–amorosas **more**–a mim, [Ele] **sukha****deya**–deleita **mora**–meu **prāṇe**–coração. **punaḥ**–Novamente **adarśana diyā**–ao abandonar [me], **dagdha kare**–Ele queima **mora**–meu **hiyā**–coração. **māre**–Ele mata **more**–meu **prāṇe**–coração. [Ainda assim, Ele é] **dhana**–a riqueza **prāṇa**–do [meu] coração.
+> **dāne**–Por [me] dar **ānanda**–o êxtase **darśana**–do encontro [com Ele e] **bale**–por dizer **vachana**–palavras **praṇaya**–amorosas **more**–a mim, [Ele] **sukha** **deya**–deleita **mora**–meu **prāṇe**–coração. **punaḥ**–Novamente **adarśana diyā**–ao abandonar [me], **dagdha kare**–Ele queima **mora**–meu **hiyā**–coração. **māre**–Ele mata **more**–meu **prāṇe**–coração. [Ainda assim, Ele é] **dhana**–a riqueza **prāṇa**–do [meu] coração.
 
 Ao me dar a alegria de encontrá-Lo e ao dizer palavras amorosas a mim, Ele deleita meu coração. Novamente, ao me abandonar, Ele queima e parte meu coração. Ainda assim, Ele é meu amado.
 

@@ -80,7 +80,7 @@ Os Nomes de Kṛṣṇa são a eterna riqueza de Goloka. Qualquer um que os cons
     emata durbuddhi yāra sei aparādhī
     māyā-pravañchita, duḥkha bhuñje niravadhi
 
-> **sarva**–Todas **śāstre**–as escrituras **kaya**–dizem [que] **sarva**–todo **pāpa**–pecado [é] **kṣaya**–destruído **nāme**–pelo Nome. **sei**–Aquele **yāra**–que **pāpa****kari’**–peca **sārā**–todo **dina**–[o] dia [com] **sei**–esta **bharasāya**–expectativa, [que tem] **emata**–tal **durbuddhi**–mentalidade, [é] **aparādhī**–um ofensor, [é] **pravañchita**–iludido **māyā**–por māyā, [e] **bhuñje**–está sujeito **duḥkha**–[ao] sofrimento **niravadhi**–perpétuo.
+> **sarva**–Todas **śāstre**–as escrituras **kaya**–dizem [que] **sarva**–todo **pāpa**–pecado [é] **kṣaya**–destruído **nāme**–pelo Nome. **sei**–Aquele **yāra**–que **pāpa** **kari’**–peca **sārā**–todo **dina**–[o] dia [com] **sei**–esta **bharasāya**–expectativa, [que tem] **emata**–tal **durbuddhi**–mentalidade, [é] **aparādhī**–um ofensor, [é] **pravañchita**–iludido **māyā**–por māyā, [e] **bhuñje**–está sujeito **duḥkha**–[ao] sofrimento **niravadhi**–perpétuo.
 
 Todas as escrituras declaram que o Nome destrói todos os pecados. Os ímpios que pecam durante todo o dia com essa expectativa são criminosos. Eles são iludidos por māyā e sofrem perpetuamente.
 

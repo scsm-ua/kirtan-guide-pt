@@ -13,7 +13,7 @@ first_line: kabe ha’be bala se-dina āmāra
     (āmār) aparādha ghuchi’    śuddha nāme ruchi
         kṛpā-bale ha’be hṛdaye sañchāra
 
-> **bala**–Por favor diga **kabe**–quando **ha’be**–será **āmāra**–meu [o] **dina**–dia **se**–que [as] **aparādha**–ofensas [serão] **ghuchi’**–dissipadas [e o] **ruchi****(anurāga)**–gosto (apego amoroso profundo) **nāme**–pelo Nome **śuddha**–puro **ha’be**–será **hṛdaye**–em meu coração **sañchara**–infundido **bale**–pelo poder **kṛpā (nāma vā guru kṛpā)**–da misericórdia (da misericórdia do Nome, ou, da misericórdia de Śrī Guru)?
+> **bala**–Por favor diga **kabe**–quando **ha’be**–será **āmāra**–meu [o] **dina**–dia **se**–que [as] **aparādha**–ofensas [serão] **ghuchi’**–dissipadas [e o] **ruchi** **(anurāga)**–gosto (apego amoroso profundo) **nāme**–pelo Nome **śuddha**–puro **ha’be**–será **hṛdaye**–em meu coração **sañchara**–infundido **bale**–pelo poder **kṛpā (nāma vā guru kṛpā)**–da misericórdia (da misericórdia do Nome, ou, da misericórdia de Śrī Guru)?
 
 Por favor, diga-me, quando aquele dia será meu em que minhas ofensas serão dissipadas e o gosto pelo Nome puro será infundido em meu coração pela graça divina?
 

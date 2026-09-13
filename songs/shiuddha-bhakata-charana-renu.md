@@ -80,7 +80,7 @@ Nos dias em que vejo o serviço devocional acontecendo em minha casa, eu sinto q
     gaura-priya    śāka-sevane
         jīvana sārthaka māni
 
-> **dekhi’**–Vendo **tulasī**–a planta mais querida de Kṛṣṇa **juḍāya**–alivia **prāṇa**–meu coração **jāni’**–sabendo [que ela é] **mādhava-toṣaṇī (Gaura-kṛṣṇa-priyā)**–agradável a Mādhava (agradável a Śrī Gaura Kṛṣṇa). **sevane**–Ao servir **śāka**–preparações de folhas verdes **priya**–a querida, favorita **gaura**–de Śrī Gaurasundar, **māni**–eu considero **jīvana**–minha vida **sārthaka****(saphala)**–bem-sucedida.
+> **dekhi’**–Vendo **tulasī**–a planta mais querida de Kṛṣṇa **juḍāya**–alivia **prāṇa**–meu coração **jāni’**–sabendo [que ela é] **mādhava-toṣaṇī (Gaura-kṛṣṇa-priyā)**–agradável a Mādhava (agradável a Śrī Gaura Kṛṣṇa). **sevane**–Ao servir **śāka**–preparações de folhas verdes **priya**–a querida, favorita **gaura**–de Śrī Gaurasundar, **māni**–eu considero **jīvana**–minha vida **sārthaka** **(saphala)**–bem-sucedida.
 
 Ver Tulasī Devī acalma minha alma, pois sei que ela agrada Mādhava. Ao honrar śāk, o prato favorito de Śrī Gaurasundar, eu considero minha vida bem-sucedida.
 

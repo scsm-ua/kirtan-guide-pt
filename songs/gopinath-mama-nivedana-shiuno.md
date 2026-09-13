@@ -75,7 +75,7 @@ first_line: gopīnāth, mama nivedana śuna
     jīvera kāraṇe    āsiyā prapañche
         līlā kaile suvistāra
 
-> **gopīnāth**–Ó Gopīnāth **tumi**–Você [é] **pārābāra**–um oceano **kṛpā**–de misericórdia. **āsiyā**–Você veio **prapañche**–para [este] mundo [e] **suvistāra****kaile**–manifestou [Seus] **līlā**–Passatempos **kāraṇe**–em prol **jīvera**–das almas [caídas].
+> **gopīnāth**–Ó Gopīnāth **tumi**–Você [é] **pārābāra**–um oceano **kṛpā**–de misericórdia. **āsiyā**–Você veio **prapañche**–para [este] mundo [e] **suvistāra** **kaile**–manifestou [Seus] **līlā**–Passatempos **kāraṇe**–em prol **jīvera**–das almas [caídas].
 
 Ó Gopīnāth, Você é um oceano de misericórdia. Você veio a este mundo e realizou Seus Passatempos em prol das almas caídas.
 
