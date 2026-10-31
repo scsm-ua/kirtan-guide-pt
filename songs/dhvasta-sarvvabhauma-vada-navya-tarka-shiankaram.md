@@ -1,6 +1,10 @@
 ---
 page: 174
 first_line: dhvasta-sārvabhauma-vāda-navya-tarka-śāṅkaraṁ
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

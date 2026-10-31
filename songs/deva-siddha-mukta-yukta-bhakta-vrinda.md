@@ -1,6 +1,10 @@
 ---
 page: 163
 first_line: deva-siddha-mukta-yukta-bhakta-vṛnda-vanditaṁ
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram

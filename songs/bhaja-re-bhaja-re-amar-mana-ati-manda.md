@@ -22,7 +22,8 @@ Sirva! Sirva! Minha mente é tão tola. Não há outra maneira a não ser servi�
 
     (bhaja) gaura-gadādharādvaita-guru-nityānanda
         (gaura-kṛṣṇe abhed jene)
-        (guru kṛṣṇa-priya jene gaura-kṛṣṇe abhed jene re) śrīnivāsa, haridāsa, murāri, mukunda
+        (guru kṛṣṇa-priya jene gaura-kṛṣṇe abhed jene re)
+    śrīnivāsa, haridāsa, murāri, mukunda
         (gaura-preme smara smara re)
         (śrīnivāsa, haridāse, gaura-preme smara smara re)
 
@@ -43,10 +44,10 @@ Lembre-se de Rūpa Goswāmī, Sanātan Goswāmī, Jīva Goswāmī, Raghunāth Bh
 
     goṣṭhī-saha karṇapura sena-śivānanda
         (ajasra smara smara re)
-    goṣṭhī-saha sena śivānande ajasra smara re)
+        (goṣṭhī-saha sena śivānande ajasra smara re)
     rūpānuga sādhu-jana bhajana-ānanda
         (vraje vās yadi chāo re)
-    (rūpānuga sādhu-jane smara vraje vās yadi chāo re)
+        (rūpānuga sādhu-jane smara vraje vās yadi chāo re)
 
 Se lembre de Kavi Karṇapur, Śivānanda Sen, e suas famílias. Se lembre sempre deles! Se lembre sempre de Śivānanda Sen e sua família. Se lembre dos sādhus que seguem Śrī Rūpa e da alegria que sentem em seu serviço. Se você deseja residir em Vraja, então lembre-se dos sādhus que seguem Śrī Rūpa.
 
