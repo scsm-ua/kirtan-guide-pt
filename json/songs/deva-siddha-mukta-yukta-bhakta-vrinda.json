@@ -1,7 +1,14 @@
 {
   "meta": {
     "page": 163,
-    "first_line": "deva-siddha-mukta-yukta-bhakta-vṛnda-vanditaṁ"
+    "first_line": "deva-siddha-mukta-yukta-bhakta-vṛnda-vanditaṁ",
+    "styles": {
+      "verses": {
+        "inline": {
+          "bold": false
+        }
+      }
+    }
   },
   "title": [
     "Śrī Śrī Prema-dhāma-deva Stotram"
