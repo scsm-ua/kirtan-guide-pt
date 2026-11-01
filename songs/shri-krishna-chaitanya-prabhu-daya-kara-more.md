@@ -56,8 +56,10 @@ Você descendeu para salvar as almas caídas. Ó Senhor, Você não vai encontra
 
 Ó Śrīnivās Āchārya Prabhu! Seja misericordioso! Narottam Dās ora pela associação de Rāmachandra Kavirāj.
 
-    (dayā kara prabhupāda śrī-gaura-prakāśa)
-    (tava jana kṛpā māge ei adhama dāsa)
+#### 8
 
-Ó Śrīla Prabhupād, manifestação de Śrī Gaura! Seja misericordioso. Este servo caído ora pela misericórdia de seus associados.
+    dayā kara prabhupāda śrī-gaura-prakāśa
+    tava jana kṛpā māge ei adhama dāsa
+
+Ó Śrīla Prabhupād, manifestação de Śrī Gaura! Seja misericordioso. Este servo caído ora pela misericórdia de seus associados. *(Verso de Śrīla Bhakti Rakṣak Śrīdhar Dev-Goswāmī Mahārāj)*
 

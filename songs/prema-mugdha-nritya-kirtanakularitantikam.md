@@ -1,6 +1,10 @@
 ---
 page: 186
 first_line: prema-mugdha-nṛtya-kīrtanākulāriṭāntikaṁ
+styles:
+  verses:
+    inline:
+      bold: false
 ---
 
 # Śrī Śrī Prema-dhāma-deva Stotram
